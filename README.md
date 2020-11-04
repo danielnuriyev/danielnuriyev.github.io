@@ -18,5 +18,17 @@ So you are ready to change your body, your attitude, your thoughts, you will bec
 
 This approach is opposite to the scientific approach. Therefore scientifically it is impossible to prove that anything spiritual exists.
 
+## Spiritual preconditions
+
+Following are physical preconditions for spiritual development
+
+### Body
+
+- Periodic frequent fasting with drinking water cleans the body.
+- Organic food
+- Food that contains proteins, minerals and vitamins. Fats and carbs minimized. Unnecessary components such as coffee minimized.
+
+TO CONTINUTE
+
 
 
