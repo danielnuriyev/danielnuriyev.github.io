@@ -22,13 +22,29 @@ This approach is opposite to the scientific approach. Therefore scientifically i
 
 Following are physical preconditions for spiritual development
 
+### Time
+
+- Plan tomorrow.
+- Minimize the unavoidable activities. 
+- Maximize time spent on achieving one next goal.
+- Use workouts as your breaks. Always workout before bed.
+- Always sit in a quiet dark place with closed eyes before bed.
+- Periodically take a day 
+  - to walk in a new place;  
+  - to see family and friends in person; 
+  - to rest through meditation and books with content that expands your mind
+
+### Place
+
 ### Body
 
 - Periodic frequent fasting with drinking water cleans the body.
 - Organic food
 - Food that contains proteins, minerals and vitamins. Fats and carbs minimized. Unnecessary components such as coffee minimized.
 
-TO CONTINUTE
+### Attitude
+
+### Mind
 
 
 
