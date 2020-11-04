@@ -36,11 +36,25 @@ Following are physical preconditions for spiritual development
 
 ### Place
 
+Spend your time in a place that is:
+- spatious
+- filled with indirect sun light
+- aired
+- minimalistic in design and objects
+- clean
+
 ### Body
+
+#### Food
 
 - Periodic frequent fasting with drinking water cleans the body.
 - Organic food
 - Food that contains proteins, minerals and vitamins. Fats and carbs minimized. Unnecessary components such as coffee minimized.
+- Amounts that don't make you heavy
+
+#### Exercise
+
+#### Sleep
 
 ### Attitude
 
