@@ -42,6 +42,7 @@ Spend your time in a place that is:
 - aired
 - minimalistic in design and objects
 - clean
+- quiet
 
 ### Body
 
@@ -54,11 +55,29 @@ Spend your time in a place that is:
 
 #### Exercise
 
+- Upside down positions after you wake up and before drinking after.
+- Workout releases stress and serves as a good reset between activities.
+- Walk fast outside in a good weather; full body workout on the floor when the weather is bad (judo/jujutsu warm-up are the best)
+- Always stretch after a workout
+
 #### Sleep
+
+- Best time to start preparing for bed starts with astronomical twilight
+- Put all electronics away, workout, stretch, shower, read a paper book, sit in a quiet dark place with closed eyes
 
 ### Attitude
 
+- Be relaxed, calm, quiet always no matter what. Just breathe out. This is simply a matter of habbit. Eventually you will be always naturally overflowing with joy.
+- Be always kind and respectful even to a stone.
+- Proactively help even an insect, even if you have to deviate from your current activity.
+- Be respectful
+
+[TO CONTINUE]
+
 ### Mind
 
+[TO CONTINUE]
 
+### The above in Torah
 
+[TO CONTINUE]
