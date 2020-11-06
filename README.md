@@ -65,14 +65,13 @@ Spend your time in a place that is:
 - Best time to start preparing for bed starts with astronomical twilight
 - Put all electronics away, workout, stretch, shower, read a paper book, sit in a quiet dark place with closed eyes
 
-### Attitude
+### Character
 
 - Be relaxed, calm, quiet always no matter what. Just breathe out. This is simply a matter of habbit. Eventually you will be always naturally overflowing with joy.
-- Be always kind and respectful even to a stone.
+- Be respectful to everyone and everything
 - Proactively help even an insect, even if you have to deviate from your current activity.
-- Be respectful
 
-[TO CONTINUE]
+Tranquility, respect and helpfulness are the basic character traits.
 
 ### Mind
 
