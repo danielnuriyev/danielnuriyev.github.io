@@ -65,13 +65,19 @@ Spend your time in a place that is:
 - Best time to start preparing for bed starts with astronomical twilight
 - Put all electronics away, workout, stretch, shower, read a paper book, sit in a quiet dark place with closed eyes
 
-### Character
+### Attitude
 
-- Be relaxed, calm, quiet always no matter what. Just breathe out. This is simply a matter of habbit. Eventually you will be always naturally overflowing with joy.
-- Be respectful to everyone and everything
-- Proactively help even an insect, even if you have to deviate from your current activity.
+- **Tranquility**. Be relaxed always no matter what. Just breathe out. This is simply a matter of habbit. Eventually you will be always naturally overflowing with joy.
+- **Respect**. Be respectful to everyone and everything.
+- **Helpfullness**. Proactively help even an insect, even if you have to deviate from your current activity.
 
-Tranquility, respect and helpfulness are the basic character traits.
+Tranquility, respect and helpfulness are the base for inner happiness and good relationships. Tranquility gives a good inner state. Respect to people and helpfullness to people establishes good relations. Respect and helpfulness to nature makes us more human. All other attitudes build on top of these 3.
+
+How to develop these attitudes? Step by step.
+
+By the way, respect and helpfullness to nature or to people who seem unimportant is the first step towards experiencing the spiritual because it makes no sense but as these attutudes develop, the world around and within begins to change.
+
+- **Limitlessness**. This is the core mental attitude for a happy and successfull life. If you would like to do something and you cannot do it at this moment, do not think that you cannot do this forever. Give yourself the freedom to think that in the future you'll definitely do it. The moment you liberate yourself to think of anything as possible, the world around you will start to change in that direction. This is the second step into the spiritual because it makes no sense but works.
 
 ### Mind
 
