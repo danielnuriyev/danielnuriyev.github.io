@@ -67,21 +67,37 @@ Spend your time in a place that is:
 
 ### Attitude
 
-- **Tranquility**. Be relaxed always no matter what. Just breathe out. This is simply a matter of habbit. Eventually you will be always naturally overflowing with joy.
-- **Respect**. Be respectful to everyone and everything.
-- **Helpfullness**. Proactively help even an insect, even if you have to deviate from your current activity.
+Attitude is about how we react to the external world and to our own state and thoughts.
+Below I list attitudes that are the base for unveiling the spiritual.
 
-Tranquility, respect and helpfulness are the base for inner happiness and good relationships. Tranquility gives a good inner state. Respect to people and helpfullness to people establishes good relations. Respect and helpfulness to nature makes us more human. All other attitudes build on top of these 3.
+**Emotional**
+Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy.
 
-How to develop these attitudes? Step by step.
+**Behavioral**
+- Respect. Be respectful to everyone and everything.
+- Helpfullness. Proactively help even an insect, even if you have to deviate from your current activity.
 
-By the way, respect and helpfullness to nature or to people who seem unimportant is the first step towards experiencing the spiritual because it makes no sense but as these attutudes develop, the world around and within begins to change.
+**Mental**
+Limitlessness. If you would like to do something and you cannot do it at this moment, give yourself the freedom to think that in the future you'll definitely do it. Limitlessness is not about having, it's about experiencing or doing.
 
-- **Limitlessness**. This is the core mental attitude for a happy and successfull life. If you would like to do something and you cannot do it at this moment, do not think that you cannot do this forever. Give yourself the freedom to think that in the future you'll definitely do it. The moment you liberate yourself to think of anything as possible, the world around you will start to change in that direction. This is the second step into the spiritual because it makes no sense but works.
+**Why**
+Tranquility heals the body, fills it with energy and makes it more sensitive. This is a precondition to experiencing the spiritual.
+Tranquility makes us free because we do not react to vicissitudes. This is a precondition for experiencing something new. 
+Tranquility leads to joy and thus makes our reactions positive.
+Respect lowers the ego and thus vacates space for the spiritual.
+Helpfullness reduces the ego as well.
 
 ### Mind
 
-[TO CONTINUE]
+#### Thoughts
+
+
+
+#### Limitlessness
+#### Intention
+#### Focus
+#### Emptiness
+#### Observation
 
 ### The above in Torah
 
