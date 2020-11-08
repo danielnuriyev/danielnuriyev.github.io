@@ -91,12 +91,27 @@ Helpfullness reduces the ego as well.
 
 #### Thoughts
 
-
+A thought appears. Just ignore it. Make it a habbit.
 
 #### Limitlessness
+
+Explained above. When you notice that you know that something is impossible, immediately and always treat about it as possible.
+
 #### Intention
+
+Treat thoughts not as random ideas that happen but as ideas that will happen if you keep thinking them.
+
 #### Focus
+
+TO CONTINUE
+
+- Remove all distractions
+- Focus on what you are doing now
+
 #### Emptiness
+
+
+
 #### Observation
 
 ### The above in Torah
