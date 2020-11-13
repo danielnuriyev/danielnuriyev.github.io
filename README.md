@@ -49,7 +49,7 @@ Spend your time in a place that is:
 #### Food
 
 - Periodic frequent fasting with drinking water cleans the body.
-- Organic food
+- Organic and free range food
 - Food that contains proteins, minerals and vitamins. Fats and carbs minimized. Unnecessary components such as coffee minimized.
 - Amounts that don't make you heavy
 
@@ -57,7 +57,7 @@ Spend your time in a place that is:
 
 - Upside down positions after you wake up and before drinking after.
 - Workout releases stress and serves as a good reset between activities.
-- Walk fast outside in a good weather; full body workout on the floor when the weather is bad (judo/jujutsu warm-up are the best)
+- Walk fast outside in a good weather; full body workout on the floor when the weather is bad (judo/jujutsu warm-ups are the best)
 - Always stretch after a workout
 
 #### Sleep
@@ -72,7 +72,10 @@ Below I list attitudes that are the base for unveiling the spiritual.
 
 **Emotional**
 - Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy.
-- Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge.
+- Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge. Gratitude make you always positive and happy.
+
+Tranquility and gratitude lead to stable joy and happiness that are not dependent on the situation.
+This is not only useful and pleasant but also shows maturity and is an important [TO CONTINUE]
 
 **Behavioral**
 - Respect. Be respectful to everyone and everything.
@@ -81,26 +84,32 @@ Below I list attitudes that are the base for unveiling the spiritual.
 **Mental**
 Limitlessness. If you would like to do something and you cannot do it at this moment, give yourself the freedom to think that in the future you'll definitely do it. Limitlessness is not about having, it's about experiencing or doing.
 
-**Why**
-Tranquility heals the body, fills it with energy and makes it more sensitive. This is a precondition to experiencing the spiritual.
-Tranquility makes us free because we do not react to vicissitudes. This is a precondition for experiencing something new. 
-Tranquility leads to joy and thus makes our reactions positive.
-Respect lowers the ego and thus vacates space for the spiritual.
-Helpfullness reduces the ego as well.
-
 ### Mind
 
 #### Thoughts
 
-A thought appears. Just ignore it. Make it a habbit.
-
-#### Limitlessness
-
-Explained above. When you notice that you know that something is impossible, immediately and always treat about it as possible.
+Most thoughts are not helpful for attaining to our goal but they occupy our attention and this drains the energy.
+Therefore make it a habbit to ignore the thoughts. Thoughts will start to struggle for your attention but if you stay patient they will disappear, you will become still, the world will become bright...
 
 #### Intention
 
-Treat thoughts not as random ideas that happen but as ideas that will happen if you keep thinking them.
+Schedule regular time to behave as if your goal is achieved. This reprograms the subconsciousness, makes it more receptive to events that bring you closer to your goal.
+
+Intention is when you turn towards your goal and start going in that direction even if the goal or achieving the goal makes no sense. This is fundamentally different from a dream or a desire.
+
+#### Role
+
+Before you start an activity, enter a role in which you can achieve you goal. For example, when you leave for the work, enter the role of the top professional in your current professsion. Make it a habbit for all activities that matter. Entering a role gives you the taste of how it is to be in that role for real, it changes how you behave, how others perceive you and eventually you get what you play.
+
+#### Light
+
+So far I have been trying to stay within materialistic reason but this 
+
+
+#### Limitlessness
+
+Explained above. When you notice that you know that something is impossible, immediately and always treat about it as possible even if it makes no sense.
+
 
 #### Focus
 
