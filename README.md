@@ -75,13 +75,18 @@ Below I list attitudes that are the base for unveiling the spiritual.
 - Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge. Gratitude make you always positive and happy.
 
 Tranquility and gratitude lead to stable joy and happiness that are not dependent on the situation.
-This is not only useful and pleasant but also shows maturity and is an important [TO CONTINUE]
+This is not only useful and pleasant but also a step in the growth of your personaity.
 
 **Behavioral**
 - Respect. Be respectful to everyone and everything.
-- Care. Proactively help even an insect, even if you have to deviate from your current activity.
+- Procative selftless care. Proactively help even an insect, even if you have to deviate from your current activity. Do it for them.
+
+Respect reduces the pride which is an obstacle for any constructive change. 
+
+Proactive care for the sake of others...well, if I rationalize it, it will not be for the sake of others...
 
 **Mental**
+
 Limitlessness. If you would like to do something and you cannot do it at this moment, give yourself the freedom to think that in the future you'll definitely do it. Limitlessness is not about having, it's about experiencing or doing.
 
 ### Mind
@@ -103,12 +108,18 @@ Before you start an activity, enter a role in which you can achieve you goal. Fo
 
 #### Light
 
-So far I have been trying to stay within materialistic reason but this 
+So far I have been trying to stay within materialistic reason. What I am going to say now cannot be rationalized but can be experienced.
+When you perceive a meterial object, perceive the Divine Light in it.
+Examples:
+- breathe in air and feel the 'energy' in the air. I am not trying to persuade you that the air has energy that you can feel. This is purely a mental thing. Just feel the energy. You have nothing to lose.
+- When you walk, feel the energy of the ground. Walk on energy.
+- When you look at the sky, see the non-physical light filling the space.
+Etc.
 
 
 #### Limitlessness
 
-Explained above. When you notice that you know that something is impossible, immediately and always treat about it as possible even if it makes no sense.
+When you notice that you know that something is impossible, immediately and always treat about it as possible even if it makes no sense.
 
 
 #### Focus
