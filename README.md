@@ -4,9 +4,6 @@ When we talk about the spiritual, different people mean different things: emotio
 When I talk about the spiritual, I talk about something that we start to observe after we leave the thoughts behind.
 A thought is just another phenomenon that we observe. Once thoughts stop veiling the mind, we start to observe the spiritual or superconsciuos phenomena. This is the subject of this blog. Welcome.
 
-Most people who write about the spiritual use 'Eastern' sources. Some use Sufism. Some use psychology. Some use various forms of nonesense. 
-My main source of information and practice is the Jewish tradition. Some ideas and practices are identical to the rest, some differ. It may be iteresting for you in places where it's different.
-
 ## So, what is spiritual, is there a proof?
 
 Since we remember ourselves, we perceive the reality through the 5 external senses.
@@ -130,14 +127,17 @@ These rationalizations squeeze the new into the known, which is, actually counte
 Just observe. 
 The bigger picture will gradually build itself out.
 
-### Spiritual
+### Mind++
 
-The following mental actions allow us to experience new phenomena directly.
+Previously described mental work makes our mind unlimited and directed.
+The following mental work leads to direct experience of something new...
 
 #### Empty Mind
 
-Most thoughts are not helpful for attaining to our goal but they occupy our attention and this drains the energy.
-Therefore make it a habbit to ignore the thoughts. Thoughts will start to struggle for your attention but if you stay patient they will disappear, you will become still, the world will become bright...
+Most thoughts are not helpful for attaining our goal but they occupy our attention and this drains the energy.
+Therefore make it a habbit to ignore the thoughts. Thoughts will start to struggle for your attention but if you stay patient they will disappear, you will become still. The longer you stay thoughtless the more you will experience ...
+
+The explanation for this is simple. Focus is one of the core and most important mental tools. Focus requires energy. Switching focus from thought to thought requires constant refocusing. But even withough the focus, thinking the thoughts also requires energy. When the mind is emopty, it becomes clear. All the energy that was previously wasted energizes all the mind without focusing on specific area. Energized mind leads to vivid experience of the environment and ourselves. And most interestingly, dormant mental abilities start to awake...
 
 #### Light
 
