@@ -101,7 +101,7 @@ Without the goal you float on the waves of life. With the goal you catch any win
 
 Choose the goal thoughfully and periodically review the goal.
 
-Setting the goal helps us see which choices match the goal and which do not. For example, spending time in front of TV probably does not match any long term goal.
+Setting the goal helps us see which choices match the goal and which do not. For example, spending time on your phone probably does not match any long term goal.
 
 #### Play roles
 
@@ -151,11 +151,12 @@ Etc.
 
 #### Focus
 
-- Remove all distractions
-- Focus on what you are doing now
+Focus is one of the core tools of our mind. To do anything we need focus, to do nothing it's enough to lose focus. 
+Use focus as one of the most precious 'things' in your possession. Focus on what you do. 
+If you cannot focus for long enough, you must rest and then train your focus muscle again. 
+Rest is not the same as switching focus to something else. Rest means closing your eyes and not focusing on anything specific.
 
 #### Observation
 
 ...
-
 
