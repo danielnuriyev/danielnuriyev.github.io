@@ -71,11 +71,12 @@ Attitude is about how we react to the external world and to our own state and th
 Below I list attitudes that are the base for unveiling the spiritual.
 
 **Emotional**
-Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy.
+- Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy.
+- Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge.
 
 **Behavioral**
 - Respect. Be respectful to everyone and everything.
-- Helpfullness. Proactively help even an insect, even if you have to deviate from your current activity.
+- Care. Proactively help even an insect, even if you have to deviate from your current activity.
 
 **Mental**
 Limitlessness. If you would like to do something and you cannot do it at this moment, give yourself the freedom to think that in the future you'll definitely do it. Limitlessness is not about having, it's about experiencing or doing.
