@@ -91,10 +91,24 @@ Limitlessness. If you would like to do something and you cannot do it at this mo
 
 ### Mind
 
-#### Thoughts
+#### Limitlessness
 
-Most thoughts are not helpful for attaining to our goal but they occupy our attention and this drains the energy.
-Therefore make it a habbit to ignore the thoughts. Thoughts will start to struggle for your attention but if you stay patient they will disappear, you will become still, the world will become bright...
+When you notice that you know that something is impossible, immediately and always treat it as possible even if it makes no sense.
+Nothing bad will happen if you don't limit yourself.
+
+#### Set THE GOAL
+
+Give your life a goal. Do not limit yourself. Do not think about how to achieve the goal.
+
+Without the goal you float on the waves of life. With the goal you catch any wind towards the destination.
+
+Choose the goal thoughfully and periodically review the goal.
+
+Setting the goal helps us see which choices match the goal and which do not. For example, spending time in front of TV probably does not match any long term goal.
+
+#### Play roles
+
+Before you start an activity, enter a role in which you can achieve you goal. For example, when you leave for the work, enter the role of the top professional in your current professsion. Make it a habbit for all activities that matter. Entering a role gives you the taste of how it is to be in that role for real, it changes how you behave, how others perceive you and eventually you get what you play.
 
 #### Intention
 
@@ -102,9 +116,28 @@ Schedule regular time to behave as if your goal is achieved. This reprograms the
 
 Intention is when you turn towards your goal and start going in that direction even if the goal or achieving the goal makes no sense. This is fundamentally different from a dream or a desire.
 
-#### Role
+#### How to handle obstacles
 
-Before you start an activity, enter a role in which you can achieve you goal. For example, when you leave for the work, enter the role of the top professional in your current professsion. Make it a habbit for all activities that matter. Entering a role gives you the taste of how it is to be in that role for real, it changes how you behave, how others perceive you and eventually you get what you play.
+When facing an obstacle, look for the shortest path towards your goal without addressing the obstacle directly.
+This creates tranquility, creativity and flexibility.
+
+#### Non-Rationalization
+
+Do not rationalize everything that happens.
+For example, as you grow spiritually you will face an increasing stream of coincincidencies. 
+The scientific part of your mind will naturally present you rationalizations.
+These rationalizations squeeze the new into the known, which is, actually counter-scientific. 
+Just observe. 
+The bigger picture will gradually build itself out.
+
+### Spiritual
+
+The following mental actions allow us to experience new phenomena directly.
+
+#### Empty Mind
+
+Most thoughts are not helpful for attaining to our goal but they occupy our attention and this drains the energy.
+Therefore make it a habbit to ignore the thoughts. Thoughts will start to struggle for your attention but if you stay patient they will disappear, you will become still, the world will become bright...
 
 #### Light
 
@@ -116,25 +149,13 @@ Examples:
 - When you look at the sky, see the non-physical light filling the space.
 Etc.
 
-
-#### Limitlessness
-
-When you notice that you know that something is impossible, immediately and always treat about it as possible even if it makes no sense.
-
-
 #### Focus
-
-TO CONTINUE
 
 - Remove all distractions
 - Focus on what you are doing now
 
-#### Emptiness
-
-
-
 #### Observation
 
-### The above in Torah
+...
 
-[TO CONTINUE]
+
