@@ -69,13 +69,15 @@ Below I list attitudes that are the base for unveiling the spiritual.
 
 **Emotional**
 - Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy.
-- Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge. Gratitude make you always positive and happy.
+- Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge. Gratitude makes you always positive and happy.
 
 Tranquility and gratitude lead to stable joy and happiness that are not dependent on the situation.
 This is not only useful and pleasant but also a step in the growth of your personaity.
 
 **Behavioral**
 - Respect. Be respectful to everyone and everything.
+- Truth. If you lie once, you will never be trusted. But specifically for spirituality, if your mind, character and actions are not absolutely truthful, your perception of reality is not real and you even do not know that.
+- Reliability. If you say something, you must do it. This is related to truthfullness. If you are responsible for something, you are fully responsible.
 - Procative selftless care. Proactively help even an insect, even if you have to deviate from your current activity. Do it for them.
 
 Respect reduces the pride which is an obstacle for any constructive change. 
