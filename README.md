@@ -17,7 +17,7 @@ This approach is opposite to the scientific approach. Therefore scientifically i
 
 ## Spiritual preconditions
 
-Following are physical preconditions for spiritual development
+Following are physical preconditions for spiritual development. They restructure the body to make it more perceptive.
 
 ### Time
 
