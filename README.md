@@ -167,7 +167,13 @@ Use focus as one of the most precious 'things' in your possession. Focus on what
 If you cannot focus for long enough, you must rest and then train your focus muscle again. 
 Rest is not the same as switching focus to something else. Rest means closing your eyes and not focusing on anything specific.
 
+#### Choice
+
+We constantly observe and choose to focus. For example, a thought appears and we choose whether to focus on this thought or not. This process is so constant that we are not aware of it. Even when you focus on one thing, you are constantly choosing to keep the focus on that thing until you enter a trance in which case you are not choosing, you are kind of asleep. This is how focus and choice rest.
+
+The awareness of choice is a tool to build a path to a next goal.
+
 #### Observation
 
-...
+
 
