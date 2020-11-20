@@ -162,6 +162,10 @@ Examples:
 - When you look at the sky, see the non-physical light filling the space.
 Etc.
 
+### Core components of mind
+
+Following are the core components of the mind that are observed during an observation (meditation in which we observe that we observe)
+
 #### Focus
 
 Focus is one of the core tools of our mind. To do anything we need focus, to do nothing it's enough to lose focus. 
@@ -177,12 +181,34 @@ The awareness of choice is a tool to build a path to a next goal.
 
 #### Awareness
 
-
+Awareness is observing without a thought and without being merged with the observed thing. Although a thought about awareness may appear.
+Awareness rests in sleep.
 
 #### Observation
 
-...
+I am not my clothes, my body, my feelings and thoughts because I observe all that. I am the Observer. Being only the observer is the first step into a real meditation. 
 
-#### Sequence
+This is also the first step where the direct spiritual experience begins. 
 
-Observe -> Choose -> Focus
+When we change the emotional attitude explained above, we start to experience that world around us changes too but we do not see the mechanism through which our attitudes affect the physical world. 
+
+When we are the Observer, we start to experience the spiritual directly. At this point there is nothing to doubt and nothing to prove.
+
+I will not describe what the spiritual is. It is possible through analogy. I'll do this later.
+
+**Sequence**
+
+- We observe.
+- Then we choose to focus or not. If we choose not to focus, there is a new thing to observe.
+- If we choose to focus, we focus
+- Even if we are completely merged with the object of focus, we are still observing it. But at this point we lose awareness of this fact. But at some point the focus ends and we are aware again. And the cycle continues.
+
+In this cycle, the only constants are the Observer, focus and the observed. We may lose the awareness and then the choice.
+
+Observer -> Awareness -> Choice -> Focus -> Observed
+
+
+#### Deeper
+
+
+
