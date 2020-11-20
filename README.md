@@ -59,7 +59,7 @@ Spend your time in a place that is:
 
 #### Sleep
 
-- Best time to start preparing for bed starts with astronomical twilight
+- Best time to start preparing for bed starts with astronomical twilight.
 - Put all electronics away, workout, stretch, shower, read a paper book, sit in a quiet dark place with closed eyes
 
 ### Attitude
@@ -76,11 +76,20 @@ This is not only useful and pleasant but also a step in the growth of your perso
 
 **Behavioral**
 - Respect. Be respectful to everyone and everything.
-- Truth. If you lie once, you will never be trusted. But specifically for spirituality, if your mind, character and actions are not absolutely truthful, your perception of reality is not real and you even do not know that.
-- Reliability. If you say something, you must do it. This is related to truthfullness. If you are responsible for something, you are fully responsible.
-- Procative selftless care. Proactively help even an insect, even if you have to deviate from your current activity. Do it for them.
+- Truth
+  - Honesty. always say the truth respectfully not to offend and humbly because this is just your perspective. If you lie once, thinking that the truth will not be discovered, you should also know when discovered, you may never be trusted again. Do not lie even as a joke. There are other ways to joke. Say the full truth. Incomplete truth may lead to different outcome.
+  - Bravery. Truth requires respect, humbleness and bravery because truth may lead to temporarily undesirable outcome for you.
+  - Reliability. When you agree to do something, you must do it. Otherwise you may never be trusted.
+  - Responsibility. When you are resopnsible for someone and something, do not slack. You will be perceived as unreliable and weak.
+- Proactive selfless care. Proactively help even an insect, even if you have to deviate from your current activity. Do it for them.
 
 Respect reduces the pride which is an obstacle for any constructive change. 
+
+Responsibility leads to proactivity which is a precondition for any change.
+
+Bravery leads to freedom which is a feature of spirituality.
+
+Honesty clears the mind to perceive the reality.
 
 Proactive care for the sake of others...well, if I rationalize it, it will not be for the sake of others...
 
