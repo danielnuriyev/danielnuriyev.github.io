@@ -175,5 +175,8 @@ The awareness of choice is a tool to build a path to a next goal.
 
 #### Observation
 
+...
 
+#### Sequence
 
+Observe -> Choose -> Focus
