@@ -124,6 +124,8 @@ Schedule regular time to behave as if your goal is achieved. This reprograms the
 
 Intention is when you turn towards your goal and start going in that direction even if the goal or achieving the goal makes no sense. This is fundamentally different from a dream or a desire.
 
+When you create an intention, think about the goal and not the steps to achieve it. But when you come across something that brings you closer to the goal, use it.
+
 #### How to handle obstacles
 
 When facing an obstacle, look for the shortest path towards your goal without addressing the obstacle directly.
@@ -172,6 +174,10 @@ Rest is not the same as switching focus to something else. Rest means closing yo
 We constantly observe and choose to focus. For example, a thought appears and we choose whether to focus on this thought or not. This process is so constant that we are not aware of it. Even when you focus on one thing, you are constantly choosing to keep the focus on that thing until you enter a trance in which case you are not choosing, you are kind of asleep. This is how focus and choice rest.
 
 The awareness of choice is a tool to build a path to a next goal.
+
+#### Awareness
+
+
 
 #### Observation
 
