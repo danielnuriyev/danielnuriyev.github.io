@@ -31,6 +31,8 @@ The work begins in the physical world because this is what you treat as known.
   - to walk in a new place;  
   - to see family and friends in person; 
   - to rest through meditation and books with content that expands your mind
+  
+The goal of time management is to liberate you to pursue your worthy goals.
 
 ### Place
 
@@ -42,6 +44,8 @@ Spend your time in a place that is:
 - clean
 - quiet
 
+The goal of location management is to declutter your attention.
+
 ### Body
 
 #### Food
@@ -51,17 +55,21 @@ Spend your time in a place that is:
 - Food that contains proteins, minerals and vitamins. Fats and carbs minimized. Unnecessary components such as coffee minimized.
 - Amounts that don't make you heavy
 
+The goal of food management is to clean your body and liberate energy for pursuing your worthy goals.
+
 #### Exercise
 
 - Upside down positions after you wake up and before drinking after.
 - Workout releases stress and serves as a good reset between activities.
 - Walk fast outside in a good weather; full body workout on the floor when the weather is bad (judo/jujutsu warm-ups are the best)
-- Always stretch after a workout
+- Always stretch after a workout.
 
 #### Sleep
 
 - Best time to start preparing for bed starts with astronomical twilight.
-- Put all electronics away, workout, stretch, shower, read a paper book, sit in a quiet dark place with closed eyes
+- Put all electronics away, workout, stretch, shower, read a paper book, sit in a quiet dark place with closed eyes.
+
+The goal of efficient sleep is to reset the ability to focus.
 
 ### Attitude
 
@@ -70,7 +78,7 @@ Below I list attitudes that are the base for unveiling the spiritual.
 
 **Physical**
 
-Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy.
+Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy and clarity.
 
 **Emotional**
 
@@ -103,6 +111,8 @@ Proactive care for the sake of others...well, if I rationalize it, it will not b
 
 Limitlessness. If you would like to do something and you cannot do it at this moment, give yourself the freedom to think that in the future you'll definitely do it. Limitlessness is not about having, it's about experiencing or doing.
 
+Limitlessness is another feature of spirituality.
+
 ### Mind
 
 #### Limitlessness
@@ -128,7 +138,9 @@ Before you start an activity, enter a role in which you can achieve you goal. Fo
 
 Schedule regular time to behave as if your goal is achieved. This reprograms the subconsciousness, makes it more receptive to events that bring you closer to your goal.
 
-Intention is when you turn towards your goal and start going in that direction even if the goal or achieving the goal makes no sense. This is fundamentally different from a dream or a desire.
+Intention is when you turn towards your goal and start going in that direction even if the goal or achieving the goal makes no sense. This is fundamentally different from a dream or a desire. 
+
+Intetion is like catching the wind in the sail in the direction of your goal.
 
 When you create an intention, think about the goal and not the steps to achieve it. But when you come across something that brings you closer to the goal, use it.
 
@@ -218,7 +230,7 @@ In this cycle, the only constants are the Observer, Focus and the Observed. We m
 
 Observer -> Awareness -> Choice -> Focus -> Observed
 
-Observer is who we are actually because all the rest is observed and therefore external to us.
+Observer is who we are actually because all the rest is observed and therefore external to us. Observer is the soul, neshama (נשמה) in Hebrew.
 
 In this schema when the Observer observes, it is presented with the thought that the Observer is observing. Thought has dual purpose:
 - by observing this thought, the Observer is aware of itself in the physical world.
