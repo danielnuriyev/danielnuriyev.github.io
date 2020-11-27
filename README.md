@@ -68,14 +68,19 @@ Spend your time in a place that is:
 Attitude is about how we react to the external world and to our own state and thoughts.
 Below I list attitudes that are the base for unveiling the spiritual.
 
+**Physical**
+
+Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy.
+
 **Emotional**
-- Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy.
-- Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge. Gratitude makes you always positive and happy.
+
+Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge. Gratitude makes you always positive and happy.
 
 Tranquility and gratitude lead to stable joy and happiness that are not dependent on the situation.
 This is not only useful and pleasant but also a step in the growth of your personaity.
 
 **Behavioral**
+
 - Respect. Be respectful to everyone and everything.
 - Truth
   - Honesty. Always say the truth respectfully not to offend and humbly because this is just your perspective. If you lie once, thinking that the truth will not be discovered, you should also know when discovered, you may never be trusted again. Do not lie even as a joke. There are other ways to joke. Say the full truth. Incomplete truth may lead to different outcome.
@@ -93,8 +98,6 @@ Bravery leads to freedom which is a feature of spirituality.
 Honesty clears the mind to perceive the reality.
 
 Proactive care for the sake of others...well, if I rationalize it, it will not be for the sake of others...
-
-There are more good behaviors but these are the base for spiritual growth.
 
 **Mental**
 
@@ -165,6 +168,11 @@ Examples:
 - When you look at the sky, see the non-physical light filling the space.
 Etc.
 
+#### Unity
+
+Constantly keep in mind that all the world is one interconnected system where every choice you make affects everything, even the farthest stars.
+Once you start behaving like this, you will see more and more how even your tiniest thoughts affect what's happening around you and how phenomena are interrelated.
+
 ### Core components of mind
 
 Following are the core components of the mind that are observed during an observation (meditation in which we observe that we observe)
@@ -209,7 +217,6 @@ I will not describe what the spiritual is. It is possible through analogy. I'll 
 In this cycle, the only constants are the Observer, focus and the observed. We may lose the awareness and then the choice.
 
 Observer -> Awareness -> Choice -> Focus -> Observed
-
 
 #### Deeper
 
