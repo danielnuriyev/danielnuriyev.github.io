@@ -242,3 +242,7 @@ An important step in the spiritual discovery is to calm the mind to the state of
 
 I would love to describe to you what you will experience when your mind is thoughtless for continuous time but the goal of this text is to bring you to that point and not to affect your experience by preconceived ideas.
 
+**Why you are here**
+
+You have read so far because you (the Observer) is trying to get out of the cage.
+
