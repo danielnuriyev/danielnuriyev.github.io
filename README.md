@@ -214,11 +214,21 @@ I will not describe what the spiritual is. It is possible through analogy. I'll 
 - If we choose to focus, we focus
 - Even if we are completely merged with the object of focus, we are still observing it. But at this point we lose awareness of this fact. But at some point the focus ends and we are aware again. And the cycle continues.
 
-In this cycle, the only constants are the Observer, focus and the observed. We may lose the awareness and then the choice.
+In this cycle, the only constants are the Observer, Focus and the Observed. We may lose the awareness and then the choice.
 
 Observer -> Awareness -> Choice -> Focus -> Observed
 
+Observer is who we are actually because all the rest is observed and therefore external to us.
+
+In this schema when the Observer observes, it is presented with the thought that the Observer is observing. Thought has dual purpose:
+- by observing this thought, the Observer is aware of itself in the physical world.
+- the thought blocks the Observer from the direct experience of the reality and from expressing itself directly in the physical world. More about it below.
+
+An important step in the spiritual discovery is to calm the mind to the state of no thoughts...
+
 #### Deeper
+
+
 
 
 
