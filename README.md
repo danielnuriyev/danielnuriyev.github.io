@@ -15,9 +15,10 @@ So you are ready to change your body, your attitude, your thoughts, you will bec
 
 This approach is opposite to the scientific approach. Therefore scientifically it is impossible to prove that anything spiritual exists.
 
-## Spiritual preconditions
+Below I am going to describe what you should do to expand your perception. 
+The work begins in the physical world because this is what you treat as known.
 
-Following are physical preconditions for spiritual development. They restructure the body to make it more perceptive.
+## Spiritual preconditions
 
 ### Time
 
@@ -77,10 +78,10 @@ This is not only useful and pleasant but also a step in the growth of your perso
 **Behavioral**
 - Respect. Be respectful to everyone and everything.
 - Truth
-  - Honesty. always say the truth respectfully not to offend and humbly because this is just your perspective. If you lie once, thinking that the truth will not be discovered, you should also know when discovered, you may never be trusted again. Do not lie even as a joke. There are other ways to joke. Say the full truth. Incomplete truth may lead to different outcome.
+  - Honesty. Always say the truth respectfully not to offend and humbly because this is just your perspective. If you lie once, thinking that the truth will not be discovered, you should also know when discovered, you may never be trusted again. Do not lie even as a joke. There are other ways to joke. Say the full truth. Incomplete truth may lead to different outcome.
   - Bravery. Truth requires respect, humbleness and bravery because truth may lead to temporarily undesirable outcome for you.
   - Reliability. When you agree to do something, you must do it. Otherwise you may never be trusted.
-  - Responsibility. When you are resopnsible for someone and something, do not slack. You will be perceived as unreliable and weak.
+  - Responsibility. When you are responsible for someone and something, do not slack. You will be perceived as unreliable and weak.
 - Proactive selfless care. Proactively help even an insect, even if you have to deviate from your current activity. Do it for them.
 
 Respect reduces the pride which is an obstacle for any constructive change. 
@@ -92,6 +93,8 @@ Bravery leads to freedom which is a feature of spirituality.
 Honesty clears the mind to perceive the reality.
 
 Proactive care for the sake of others...well, if I rationalize it, it will not be for the sake of others...
+
+There are more good behaviors but these are the base for spiritual growth.
 
 **Mental**
 
