@@ -244,5 +244,5 @@ I would love to describe to you what you will experience when your mind is thoug
 
 **Why you are here**
 
-You have read so far because you (the Observer) have not been overweighed.
+You have read so far because one of your (the Observer's, the soul's) core features is to express yourself.
 
