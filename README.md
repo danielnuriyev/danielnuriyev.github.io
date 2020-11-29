@@ -268,5 +268,6 @@ You have read so far because you (the Observer, the soul) is trying to get out o
 
 ### What to do, how to do
 
+Apply each item on this list starting with 'plan tomorrow'. Do not skip any step. Do not proceed to a next step unless at least 2/3 of a current step is mastered, however you'd score it. Two thirds because perfectionism is opposite to freedom. But slacking is also pointless when you have goal.
 
-
+The steps listed in this text focus on building you from bottom all the way up to the direct experience of the spiritual. The changes that you will undergo will positively affect all aspects of your life. But this list does not focus on making you financially and socially successful, or healthy. These require another, although intersecting, set of skills. Nevertheless financial, social and physical prosperity will acompany your spiritual growth.
