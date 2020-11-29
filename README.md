@@ -46,7 +46,7 @@ Spend your time in a place that is:
 - clean
 - quiet
 
-The goal of location management is to declutter your attention.
+A proper place declutters your attention.
 
 ### Body
 
@@ -57,7 +57,7 @@ The goal of location management is to declutter your attention.
 - Food that contains proteins, minerals and vitamins. Fats and carbs minimized. Unnecessary components such as coffee minimized.
 - Amounts that don't make you heavy
 
-The goal of food management is to clean your body and liberate energy for pursuing your worthy goals.
+Proper food cleans your body and liberates energy for pursuing your worthy goals.
 
 #### Exercise
 
@@ -71,7 +71,7 @@ The goal of food management is to clean your body and liberate energy for pursui
 - Best time to start preparing for bed starts with astronomical twilight.
 - Put all electronics away, workout, stretch, shower, read a paper book, sit in a quiet dark place with closed eyes.
 
-The goal of efficient sleep is to reset the ability to focus.
+Efficient sleep resets the ability to focus.
 
 ### Attitude
 
@@ -82,12 +82,11 @@ Below I list attitudes that are the base for unveiling the spiritual.
 
 Tranquility. Relax always no matter what. Just breathe out. This is simply a matter of habbit. Relaxation leads to joy and clarity.
 
-**Emotional**
+**Breathing**
 
 Gratitude. Feel gratitude with every breath. If something troubles you, be grateful for the challenge. Gratitude makes you always positive and happy.
 
 Tranquility and gratitude lead to stable joy and happiness that are not dependent on the situation.
-This is not only useful and pleasant but also a step in the growth of your personaity.
 
 **Behavioral**
 
@@ -109,11 +108,29 @@ Honesty clears the mind to perceive the reality.
 
 Proactive care for the sake of others...well, if I rationalize it, it will not be for the sake of others...
 
+**Emotional**
+
+For most people emotions just happen. They usually follow either the body or the thoughts. After a nice walk, one can feel happy. A pleasant memory can bring a pleasant feeling.
+
+But emotions can and should be caused intentionally. 
+
+- Tranquility. Relaxed body naturally leads to feeling of peace.
+- Gratitude. Gratitude requires effort. Receive each breath with gratutude and breathe out with gratitude. This will become a habbit and all the time will be spent with the feeling of gratitude and peace. This breathing can be done with the lower abdomen. I am not going to explain how to breathe with the lower abdomen because this is broadly known from yoga and qigong. In this breathing the body is tied to a feeling. To intensify the feeling we can breathe with the heart. When you breathe, do it as if with your heart. Heart is not necessarily the physical heart but the area in the chest where you feel good emotions such as love.
+- Love. When you talk with a person, as you breathe with your heart, hug the person with the heart. After you've become proficient in gratitude, this should be easy and warm. Apply this to everything you interact with.
+- Joy. When a conversation leads to smile, always smile with your heart first.
+- Openness. After you've learned to act with the heart, open it. Open heart leads to happiness and light.
+
+Creating emotions makes us free from circumstances. Tranquility leads to better perception. Gratitude establishes correct and loving relationship with the spiritual reality. Smiling with the heart makes us truthful at the core. Love towards others is a feature of the spiritual. Open heart is an inner fountain of light and happiness.
+
+Developing the heart not only opens an internal fountain of light, happiness and love but also deploys an additional sense in addition to the 5 physical ones.
+
 **Mental**
 
 Limitlessness. If you would like to do something and you cannot do it at this moment, give yourself the freedom to think that in the future you'll definitely do it. Limitlessness is not about having, it's about experiencing or doing.
 
 Limitlessness is another feature of spirituality.
+
+Attitudes and feelings described above are actually the most natural state of a human that are have been dimmed by circumstances.
 
 ### Mind
 
@@ -175,12 +192,14 @@ The explanation for this is simple. Focus is one of the core and most important 
 #### Light
 
 So far I have been trying to stay within materialistic reason. What I am going to say now cannot be rationalized but can be experienced.
-When you perceive a meterial object, perceive the Divine Light in it.
+When you perceive a material object, perceive the Divine Light in it.
 Examples:
 - breathe in air and feel the 'energy' in the air. I am not trying to persuade you that the air has energy that you can feel. This is purely a mental thing. Just feel the energy. You have nothing to lose.
 - When you walk, feel the energy of the ground. Walk on energy.
 - When you look at the sky, see the non-physical light filling the space.
 Etc.
+
+And especially when you look into human eyes, see the Divine looking back at you albeit from behind multiple veils.
 
 #### Unity
 
@@ -221,8 +240,9 @@ When we are the Observer, we start to experience the spiritual directly. At this
 
 I will not describe what the spiritual is. It is possible through analogy. I'll do this later.
 
-**Sequence**
+**Deep mental process**
 
+The following happens on the level deeper than thoughts:
 - We observe.
 - Then we choose to focus or not. If we choose not to focus, there is a new thing to observe.
 - If we choose to focus, we focus
@@ -230,7 +250,7 @@ I will not describe what the spiritual is. It is possible through analogy. I'll 
 
 In this cycle, the only constants are the Observer, Focus and the Observed. We may lose the awareness and then the choice.
 
-Observer -> Awareness -> Choice -> Focus -> Observed
+Observer -> (Awareness -> Choice ->) Focus -> Observed
 
 Observer is who we are actually because all the rest is observed and therefore external to us. Observer is the soul, neshama (נשמה) in Hebrew.
 
@@ -244,5 +264,9 @@ I would love to describe to you what you will experience when your mind is thoug
 
 **Why you are here**
 
-You have read so far because one of your (the Observer's, the soul's) core features is to express yourself.
+You have read so far because you (the Observer, the soul) is trying to get out of the veil like a bird that will leave the cage the moment the door is open. Unlike the bird, you can remove the veil.
+
+### What to do, how to do
+
+
 
