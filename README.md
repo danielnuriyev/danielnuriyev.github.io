@@ -17,10 +17,17 @@ This approach is opposite to the scientific approach that does not require you t
 
 This also matches the scientific approach because it requires direct experience instead of a belief.
 
-Below I am going to describe what you should do to expand your perception. 
-The work begins in the physical world because this is what you treat as known.
+### Types of people by their approach to the spiritual
+
+- Scientific. Such a person uses observation and deduction to explain the reality. This is the best approach. It is applicable to the discovery of the spiritual. To explore the spiritual this approach requires all participants to change themselves to experience the same. Therefore practically this approach is not applied to the spiritual. Such people are often complete meterialists, atheists and skeptics of the spiritual.
+- Agnostic. Just like a scientist, an agnostic does not deny that the reality is far from being fully explored. But an agnostic extends this attitude towards the spiritual and teh devine.
+- Believer. Just like a scientist, a believer can be absolutely rational. Like an agnostic, a believer realizes that the reality is way beyond our current knowledge. In addition, a believer treats the spiritual as absolutely real. There may be no base for this belief, or maybe the believer accepts upon him/herself a specific idea about the spiritual, either his/her own or an existing. A believer may even practice religious rituals such as speaking to his/her idea of the spiritual, like praying to the Creator of the world. But a believer does not attempt to change him/herself in order to experience the spiritual.
+- Mystic. A mystic is a person who changes him/herself to experience the spiritual. This text is for this person.
 
 ## Spiritual preconditions
+
+Below I am going to describe what you should do to expand your perception. 
+The work begins in the physical world because this is what you treat as known.
 
 ### Time
 
@@ -61,9 +68,9 @@ Proper food cleans your body and liberates energy for pursuing your worthy goals
 
 #### Exercise
 
-- Upside down positions after you wake up and before drinking after.
+- Upside down positions after you wake up but before you drink.
 - Workout releases stress and serves as a good reset between activities.
-- Walk fast outside in a good weather; full body workout on the floor when the weather is bad (judo/jujutsu warm-ups are the best)
+- Walk fast outside in a good weather; full body workout when the weather is bad (judo/jujutsu warm-ups are the best).
 - Always stretch after a workout.
 
 #### Sleep
@@ -117,7 +124,7 @@ But emotions can and should be caused intentionally.
 - Tranquility. Relaxed body naturally leads to feeling of peace.
 - Gratitude. Gratitude requires effort. Receive each breath with gratutude and breathe out with gratitude. This will become a habbit and all the time will be spent with the feeling of gratitude and peace. This breathing can be done with the lower abdomen. I am not going to explain how to breathe with the lower abdomen because this is broadly known from yoga and qigong. In this breathing the body is tied to a feeling. To intensify the feeling we can breathe with the heart. When you breathe, do it as if with your heart. Heart is not necessarily the physical heart but the area in the chest where you feel good emotions such as love.
 - Love. When you talk with a person, as you breathe with your heart, hug the person with the heart. After you've become proficient in gratitude, this should be easy and warm. Apply this to everything you interact with.
-- Joy. When a conversation leads to smile, always smile with your heart first.
+- Joy. Smile to everything with your heart. When you see or think of a person, an animal, an object, a situation. Plant a smile in anything useful that you do. A physical smile should always start in the heart.
 - Openness. After you've learned to act with the heart, open it. Open heart leads to happiness and light.
 
 Creating emotions makes us free from circumstances. Tranquility leads to better perception. Gratitude establishes correct and loving relationship with the spiritual reality. Smiling with the heart makes us truthful at the core. Love towards others is a feature of the spiritual. Open heart is an inner fountain of light and happiness.
@@ -130,7 +137,9 @@ Limitlessness. If you would like to do something and you cannot do it at this mo
 
 Limitlessness is another feature of spirituality.
 
-Attitudes and feelings described above are actually the most natural state of a human that are have been dimmed by circumstances.
+Attitudes and feelings described above are actually the most natural state of a human that have been dimmed by circumstances.
+
+There are many more good attitudes, behaviors and feelings but the ones listed above are the core for developing perception of the spiritual.
 
 ### Mind
 
@@ -258,16 +267,21 @@ In this schema when the Observer observes, it is presented with the thought that
 - by observing this thought, the Observer is aware of itself in the physical world.
 - the thought blocks the Observer from the direct experience of the reality and from expressing itself directly in the physical world. More about it below.
 
-An important step in the spiritual discovery is to calm the mind to the state of no thoughts...
-
-I would love to describe to you what you will experience when your mind is thoughtless for continuous time but the goal of this text is to bring you to that point and not to affect your experience by preconceived ideas.
+An important step in the spiritual discovery is to calm the mind to the state of no thoughts. I would love to describe to you what you will experience when your mind is thoughtless for continuous time but the goal of this text is to bring you to that point and not to affect your experience by preconceived ideas.
 
 **Why you are here**
 
-You have read so far because you (the Observer, the soul) is trying to get out of the veil like a bird that will leave the cage the moment the door is open. Unlike the bird, you can remove the veil.
+You have read so far because you (the Observer, the soul) is trying to get out of the veil of thoughts.
+
+People who are rational, reasonable, logical, scientific, materialist, atheist simply observe this type of thoughts without choosing to dig deeper. Digging deeper is rational as well but based on a direct experience.
 
 ### What to do, how to do
 
 Apply each item on this list starting with 'plan tomorrow'. Do not skip any step. Do not proceed to a next step unless at least 2/3 of a current step is mastered, however you'd score it. Two thirds because perfectionism is opposite to freedom. But slacking is also pointless when you have goal.
 
-The steps listed in this text focus on building you from bottom all the way up to the direct experience of the spiritual. The changes that you will undergo will positively affect all aspects of your life. But this list does not focus on making you financially and socially successful, or healthy. These require another, although intersecting, set of skills. Nevertheless financial, social and physical prosperity will acompany your spiritual growth.
+The steps listed in this text focus on building you from bottom all the way up to the direct experience of the spiritual. The changes that you will undergo will positively affect all aspects of your life. But this list does not focus on making you financially and socially successful, or healthy. These require another, although intersecting, set of skills. Nonetheless, financial, social and physical prosperity should acompany your spiritual growth.
+
+It is important not to skip any step because when you reach the state of continuous thoughtlessness, you will be flooded with energy. The body must be prepared to tunnel this energy. When the body is not properly structured, it falls apart. When the feelings are not positive, they become manyfold reinforced. Same goes for attitudes.
+
+
+
