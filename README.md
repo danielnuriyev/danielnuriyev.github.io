@@ -23,6 +23,9 @@ This also matches the scientific approach because it requires direct experience 
 - Agnostic. Just like a scientist, an agnostic does not deny that the reality is far from being fully explored. But an agnostic extends this attitude towards the spiritual and teh devine.
 - Believer. Just like a scientist, a believer can be absolutely rational. Like an agnostic, a believer realizes that the reality is way beyond our current knowledge. In addition, a believer treats the spiritual as absolutely real. There may be no base for this belief, or maybe the believer accepts upon him/herself a specific idea about the spiritual, either his/her own or an existing. A believer may even practice religious rituals such as speaking to his/her idea of the spiritual, like praying to the Creator of the world. But a believer does not attempt to change him/herself in order to experience the spiritual.
 - Mystic. A mystic is a person who changes him/herself to experience the spiritual. This text is for this person.
+- Divine. A divine being living in this world who does not need a proof that he/she exists because he/she simply exists. Such a person preserves the awareness and acts selflessly for the spiritual growth of the world.
+
+This text is for a person who needs a proof that the spiritual exists.
 
 ## Spiritual preconditions
 
