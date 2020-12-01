@@ -143,6 +143,8 @@ There are many more good attitudes, behaviors and feelings but the ones listed a
 
 ### Mind
 
+The following mental attitudes and behaviors make the mind calm, focused, decluttered, limitless.
+
 #### Limitlessness
 
 When you notice that you know that something is impossible, immediately and always treat it as possible even if it makes no sense.
@@ -188,8 +190,7 @@ The bigger picture will gradually build itself out.
 
 ### Mind++
 
-Previously described mental work makes our mind unlimited and directed.
-The following mental work leads to direct experience of something new...
+The following mental work leads to direct experience of something new.
 
 #### Empty Mind
 
@@ -217,7 +218,9 @@ Once you start behaving like this, you will see more and more how even your tini
 
 ### Core components of mind
 
-Following are the core components of the mind that are observed during an observation (meditation in which we observe that we observe)
+Following are the core components of the mind that are observed during an observation (meditation in which we observe that we observe).
+
+It is important to understand them and to start observing them because otherwise the mind will stay veiled.
 
 #### Focus
 
@@ -269,7 +272,7 @@ In this schema when the Observer observes, it is presented with the thought that
 
 An important step in the spiritual discovery is to calm the mind to the state of no thoughts. I would love to describe to you what you will experience when your mind is thoughtless for continuous time but the goal of this text is to bring you to that point and not to affect your experience by preconceived ideas.
 
-**Why you are here**
+### Why you are here
 
 You have read so far because you (the Observer, the soul) is trying to get out of the veil of thoughts.
 
@@ -283,5 +286,6 @@ The steps listed in this text focus on building you from bottom all the way up t
 
 It is important not to skip any step because when you reach the state of continuous thoughtlessness, you will be flooded with energy. The body must be prepared to tunnel this energy. When the body is not properly structured, it falls apart. When the feelings are not positive, they become manyfold reinforced. Same goes for attitudes.
 
+### Upside down
 
-
+This text is written for a person with a scientific attitude who would like to discover the spiritual. Imagine that you have discovered the spiritual. And now you are a Spiritual Being (Observer, Soul) living in this physical world. This is the Jewish approach that I am going to describe in a separate text...
