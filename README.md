@@ -21,8 +21,8 @@ This also matches the scientific approach because it requires direct experience 
 
 - Scientific. Such a person uses observation and deduction to explain the reality. This is the best approach. It is applicable to the discovery of the spiritual. To explore the spiritual this approach requires all participants to change themselves to experience the same. Therefore practically this approach is not applied to the spiritual. Such people are often complete meterialists, atheists and skeptics of the spiritual.
 - Agnostic. Just like a scientist, an agnostic does not deny that the reality is far from being fully explored. But an agnostic extends this attitude towards the spiritual and teh devine.
-- Believer. Just like a scientist, a believer can be absolutely rational. Like an agnostic, a believer realizes that the reality is way beyond our current knowledge. In addition, a believer treats the spiritual as absolutely real. There may be no base for this belief, or maybe the believer accepts upon him/herself a specific idea about the spiritual, either his/her own or an existing. A believer may even practice religious rituals such as speaking to his/her idea of the spiritual, like praying to the Creator of the world. But a believer does not attempt to change him/herself in order to experience the spiritual.
-- Mystic. A mystic is a person who changes him/herself to experience the spiritual. This text is for this person.
+- Believer. Just like a scientist, a believer can be absolutely rational. Like an agnostic, a believer realizes that the reality is way beyond our current knowledge. In addition, a believer treats the spiritual as absolutely real. There may be no base for this belief, or maybe the believer accepts upon oneself a specific idea about the spiritual, either his/her own or an existing. A believer may even practice religious rituals such as speaking to his/her idea of the spiritual, like praying to the Creator of the world. But a believer does not attempt to change oneself in order to experience the spiritual.
+- Mystic. A mystic is a person who changes oneself to experience the spiritual. This text is for this person.
 - Divine. A divine being living in this world who does not need a proof that he/she exists because he/she simply exists. Such a person preserves the awareness and acts selflessly for the spiritual growth of the world.
 
 This text is for a person who needs a proof that the spiritual exists.
@@ -221,7 +221,7 @@ Once you start behaving like this, you will see more and more how even your tini
 
 ### Core components of mind
 
-Following are the core components of the mind that are observed during an observation (meditation in which we observe that we observe).
+Following are the core components of the mind that are observed during an observation. Observation is when we observe that we observe. AKA meditation.
 
 It is important to understand them and to start observing them because otherwise the mind will stay veiled.
 
@@ -277,17 +277,23 @@ An important step in the spiritual discovery is to calm the mind to the state of
 
 ### Why you are here
 
-You have read so far because you (the Observer, the soul) is trying to get out of the veil of thoughts.
+You have read so far because you (the Observer, the Soul) is trying to get out of the veil of thoughts.
 
 People who are rational, reasonable, logical, scientific, materialist, atheist simply observe this type of thoughts without choosing to dig deeper. Digging deeper is rational as well but based on a direct experience.
 
 ### What to do, how to do
 
-Apply each item on this list starting with 'plan tomorrow'. Do not skip any step. Do not proceed to a next step unless at least 2/3 of a current step is mastered, however you'd score it. Two thirds because perfectionism is opposite to freedom. But slacking is also pointless when you have goal.
+Apply each item on this list starting with 'plan tomorrow'. Do not skip any step. Do not proceed to a next step unless at least 2/3 of a current step is mastered, however you'd score it. Two thirds because perfectionism is opposite to freedom. But slacking is also pointless when you have a goal.
 
-The steps listed in this text focus on building you from bottom all the way up to the direct experience of the spiritual. The changes that you will undergo will positively affect all aspects of your life. But this list does not focus on making you financially and socially successful, or healthy. These require another, although intersecting, set of skills. Nonetheless, financial, social and physical prosperity should acompany your spiritual growth.
+The steps listed in this text focus on building you from bottom all the way up to the direct experience of the spiritual. The changes that you will undergo will positively affect all aspects of your life. But this list does not focus on making you financially, socially, physicaslly, emotionally successful. These require another, although intersecting, set of skills. Nonetheless, financial, social, physical and emotional prosperity should acompany your spiritual growth.
 
-It is important not to skip any step because when you reach the state of continuous thoughtlessness, you will be flooded with energy. The body must be prepared to tunnel this energy. When the body is not properly structured, it falls apart. When the feelings are not positive, they become manyfold reinforced. Same goes for attitudes.
+It is important not to skip any step because when you reach the state of continuous thoughtlessness, you will be flooded with energy. The body must be prepared to tunnel this energy. When the body is not properly structured, it falls apart. When the feelings are not positive, they become manyfold reinforced. Same goes for attitudes and thoughts.
+
+#### Obstacles
+
+When you start to change yourself, you face multiple obstacles. These obstacles are common to any new regular activity. For example, you have a thought that you have to do something and you get distracted, or you cannot start, or you don't enjoy, or you have doubts, or you do not persist etc. There are easy to deal with because no matter what the obstacle is, you either do or don't do.
+
+But there is one type of obstacle worth special attention. When you switch from poker to pool, you learn a new skill but essentially nothing changes. You are stay the same. But when you start to change yourself, you disbalance a stable system. Every effort you make will be met with equal force that will demonstrate itself in various ways: physical and emotional discomfort, opposite thoughts, people who will strive to keep you from changing in various ways, events that are 'just coincidences'.
 
 ### Upside down
 
