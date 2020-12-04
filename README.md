@@ -1,7 +1,7 @@
 # spirituality
 
 When we talk about the spiritual, different people mean different things: emotions, morality, creativity, subconciousness, mysticism.
-When I talk about the spiritual, I talk about something that is deeper than the feelings and thoughst, something that we start to observe after we leave the thoughts behind.
+When I talk about the spiritual, I talk about something that is deeper than the feelings and thoughts, something that we start to observe after we leave the thoughts behind.
 A thought is just another phenomenon that we observe. Once thoughts stop veiling the mind, we start to observe the spiritual or superconsciuos phenomena. This is the subject of this blog. Welcome.
 
 ## So, what is spiritual, is there a proof?
@@ -15,11 +15,11 @@ So you are ready to change your body, your attitude, your thoughts, you will bec
 
 This approach is opposite to the scientific approach that does not require you to change. Therefore scientifically it is impossible to prove that anything spiritual exists.
 
-This also matches the scientific approach because it requires direct experience instead of a belief.
+On the other hand this also is the scientific approach because it requires direct experience instead of a belief.
 
 ### Types of people by their approach to the spiritual
 
-- Scientific. Such a person uses observation and deduction to explain the reality. This is the best approach. It is applicable to the discovery of the spiritual. To explore the spiritual this approach requires all participants to change themselves to experience the same. Therefore practically this approach is not applied to the spiritual. Such people are often complete meterialists, atheists and skeptics of the spiritual.
+- Scientist. Such a person uses observation and deduction to explain the reality. This is the best approach. It is applicable to the discovery of the spiritual. To explore the spiritual this approach requires all participants to change themselves to experience the same. Therefore practically this approach is not applied to the spiritual. Such people are often complete meterialists, atheists and skeptics of the spiritual.
 - Agnostic. Just like a scientist, an agnostic does not deny that the reality is far from being fully explored. But an agnostic extends this attitude towards the spiritual and teh devine.
 - Believer. Just like a scientist, a believer can be absolutely rational. Like an agnostic, a believer realizes that the reality is way beyond our current knowledge. In addition, a believer treats the spiritual as absolutely real. There may be no base for this belief, or maybe the believer accepts upon oneself a specific idea about the spiritual, either his/her own or an existing. A believer may even practice religious rituals such as speaking to his/her idea of the spiritual, like praying to the Creator of the world. But a believer does not attempt to change oneself in order to experience the spiritual.
 - Mystic. A mystic is a person who changes oneself to experience the spiritual. This text is for this person.
@@ -146,7 +146,7 @@ There are many more good attitudes, behaviors and feelings but the ones listed a
 
 ### Mind
 
-The following mental attitudes and behaviors make the mind calm, focused, decluttered, limitless.
+The following mental attitudes and behaviors make the mind calm, focused, clear, limitless and thus more perceptive.
 
 #### Limitlessness
 
@@ -175,7 +175,7 @@ Intention is when you turn towards your goal and start going in that direction e
 
 Intetion is like catching the wind in the sail in the direction of your goal.
 
-When you create an intention, think about the goal and not the steps to achieve it. But when you come across something that brings you closer to the goal, use it.
+When you create an intention, think about the goal and not the steps to achieve it. But when you come across something that brings you closer to the goal, use it with gratitude.
 
 #### How to handle obstacles
 
@@ -277,7 +277,7 @@ An important step in the spiritual discovery is to calm the mind to the state of
 
 ### Why you are here
 
-You have read so far because you (the Observer, the Soul) is trying to get out of the veil of thoughts.
+You have read so far because you - the Soul - is looking for a way out from the veil of thoughts.
 
 People who are rational, reasonable, logical, scientific, materialist, atheist simply observe this type of thoughts without choosing to dig deeper. Digging deeper is rational as well but based on a direct experience.
 
@@ -297,4 +297,5 @@ But there is one type of obstacle worth special attention. When you switch from 
 
 ### Upside down
 
-This text is written for a person with a scientific attitude who would like to discover the spiritual. Imagine that you have discovered the spiritual. And now you are a Spiritual Being (Observer, Soul) living in this physical world. This is the Jewish approach that I am going to describe in a separate text...
+This text is written for a person with a scientific attitude who would like to discover the spiritual. Imagine that you have discovered the spiritual. And now you are a Spiritual Being (Observer, Soul) living in this physical world. This is the Jewish approach that I am going to describe in a separate text. But briefly, you do not believe but you directly see that thoughts, feelings, body, possessions are just tools that do not have a value of their own. You use them to bring divinity to other beings.
+
