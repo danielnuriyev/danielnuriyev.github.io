@@ -18,4 +18,6 @@ I have 2 answers:
 
 If these explanations are not persuasive, you should do certain practices that will lead you to the direct experience and unveiling of your most inner self as I described [here](../main/README.md).
 
+## Jewish Point of View
 
+TO CONTINUE
