@@ -35,10 +35,20 @@ I have 2 answers:
 If these explanations are not persuasive, you should do certain practices that will lead you to the direct experience and unveiling of your most inner self as I described [here](../main/README.md).
 
 ### What is soul
+ 
+Anything that we perceive is external to our essence which is the soul. One of the by-products of a spiritual practice is to allow the soul to express itself, to become aware of itself, to be itself.
 
-### Relation between the Creator and the world, and the souls
+### the Creator, the world, the souls
+
+Every religion has an opinion about the existence of the Creator, His essence, the ability to perceive Him, the ability to merge with Him, about His relation to the world. Is it He at all. Did he create the world or the world is eternal. Did He create an eternal world. Etc.
+
+Judaim certainly also has an opinion, even multiple ones. Multiple because they address multiple points of view. It may be the point of view of a Jew who starts the spiritual journey with awareness in the physical. It may be the point of view of a Jewish mystic whose awareness is in the soul. Etc.
+
+The goal of this text is to bring you to answers through your direct experience.
 
 ### Other worlds ?
+
+TO CONTINUE
 
 ### Transmission
 
@@ -48,5 +58,8 @@ But the surrounding civilizations do affect the application of the Jewish princi
 
 ## Jewish Point of View
 
+TO CONTINUE
 
 ## Books
+
+TO CONTINUE
