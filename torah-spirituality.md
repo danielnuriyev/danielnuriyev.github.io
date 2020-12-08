@@ -29,17 +29,19 @@ In Hebrew the Jewish religion is called התורה The Torah which literally mea
 
 When I write the 'Creator', the natural question is how do we know that there is the Creator.
 I have 2 answers:
-- Practice. The Jewish religion is not based on ideas but on practice. Practice unveils the soul which is a ray of God. A ray does not need a proof that it comes from the sun. It is its nature.
+- Practice. The Jewish religion is not based on ideas but on practice. Practice unveils the soul which is like ray of God that does not need a proof of its nature.
 - Soul. Some people look at the world from the point of view of the soul from birth. Most people's awareness shifts into thoughts but the soul is still behind the veil of thoughts and although the awareness is in thoughts, thoughts that hint at the existence of the Divine are like a lighthouse for the soul. Even though such people do not experience the spiritual directly, they sub- or, more precisely, superconsciously know that they are divine at the core.
 
 If these explanations are not persuasive, you should do certain practices that will lead you to the direct experience and unveiling of your most inner self as I described [here](../main/README.md).
 
 ### Transmission
 
-How do we know that the Torah has been transmitted faithfully. Because children grow practicing it and studying it all their lives. There has been no other religion in which all men all life long have been studying their religion. 
+How do we know that the Torah has been transmitted faithfully. Because children grow practicing it and studying it all their lives. There has been no other religion in which all men all life long have been studying their religion.
 
 But the surrounding civilizations do affect the application of the Jewish principles and laws. For example, in the past we read a Torah scroll by the candle light, now we read the same scroll under the electic light.
 
 ## Jewish Point of View
+
+
 
 ## Books
