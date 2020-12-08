@@ -2,13 +2,13 @@
 
 This is a work in progress. So far I am just throwing here random ideas.
 
-This text is written for people interested in direct spiritual experience. The main reason for writing this is that increasingly more people are interested in the spiritual and most practical material is based on 'eastern' practices whereas the Jewish people have been transmitting and developing spirituality for 4000 years since Abraham. 
+This text is written for people interested in direct spiritual experience. The main reason for writing this is that increasingly more people are interested in the spiritual. Most practical material is based on 'eastern' practices whereas the Jewish people have been transmitting and developing spirituality for 4000 years since Abraham. 
 
-The Jewish spiritual practice is not easily available because if you're a Jewish 'guru' (rebbe, for example), you are absolutely modest, you practice it yourself and you naturally transmit it to people around you or to people who heard about you and came to study with you. If you feel that your experience and knowledge are broadly useful, you publish a book in Hebrew. Why Hebrew? Because languages come and go but Hebrew stays. Therefore to find a Jewish spiritual master requires a true desire and a consistent effort whereas finding a YouTube video about meditation is a few seconds away. 
+The Jewish spiritual practice is not easily available because if you're a Jewish 'guru' (rebbe, for example), you are modest, you practice it yourself and you naturally transmit it to people around you or to people who heard about you and came to study with you. If you feel that your experience and knowledge are broadly useful, you publish a book in Hebrew. Why Hebrew? Because languages come and go but Hebrew stays. Therefore to find a Jewish spiritual master requires a true desire and a consistent effort whereas finding a YouTube video about meditation is a just few seconds away. 
 
 An opposite issue is that there is increasingly more material about the Jewish spirituality in English but it's either not intended as a practical guide or it is shallow.
 
-Therefore I have decided to share a few highlights and a few references to books. The main emphasis is on constant focused parctice, not on belief, not on understanding, not on knowledge althought. The study of Torah, which is included in the list, is starts with sitting, reading and trying to understand but these are just tools. 
+Therefore I have decided to share a few highlights and a few references to books. The main emphasis is on constant focused parctice, not on belief, not on understanding, not on knowledge. The study of Torah, which is included in the list, starts with sitting, reading and trying to understand but these are just tools. 
 
 The text is based on my personal experience as of now. My only hope is to keep improving.
 
@@ -29,10 +29,16 @@ In Hebrew the Jewish religion is called התורה The Torah which literally mea
 
 When I write the 'Creator', the natural question is how do we know that there is the Creator.
 I have 2 answers:
-- Practice. The Jewish religion is not based on ideas but on practice. Practice unveils the soul which is like ray of God that does not need a proof of its nature.
-- Soul. Some people look at the world from the point of view of the soul from birth. Most people's awareness shifts into thoughts but the soul is still behind the veil of thoughts and although the awareness is in thoughts, thoughts that hint at the existence of the Divine are like a lighthouse for the soul. Even though such people do not experience the spiritual directly, they sub- or, more precisely, superconsciously know that they are divine at the core.
+- Practice. The Jewish religion is based on practice through which the soul gradually becomes more and more aware of itself and of its own Devine connection. What exactly the soul is I will explain below. For now think of it as of who you actually are at your core behind your clothes, body, feelings and thoughts.
+- Soul. Some people look at the world from the point of view of the soul from birth. Most people's awareness shifts into thoughts but the soul is still behind the veil of thoughts and although the awareness is in thoughts, thoughts that hint at the existence of the Divine are like a lighthouse for the soul. Even though such people do not experience the spiritual directly, they sub- or, more precisely, superconsciously know that they are Divine at the core.
 
 If these explanations are not persuasive, you should do certain practices that will lead you to the direct experience and unveiling of your most inner self as I described [here](../main/README.md).
+
+### What is soul
+
+### Relation between the Creator and the world, and the souls
+
+### Other worlds ?
 
 ### Transmission
 
@@ -41,7 +47,6 @@ How do we know that the Torah has been transmitted faithfully. Because children 
 But the surrounding civilizations do affect the application of the Jewish principles and laws. For example, in the past we read a Torah scroll by the candle light, now we read the same scroll under the electic light.
 
 ## Jewish Point of View
-
 
 
 ## Books
