@@ -46,10 +46,6 @@ Judaim certainly also has an opinion, even multiple ones. Multiple because they 
 
 The goal of this text is to bring you to answers through your direct experience.
 
-### Other worlds ?
-
-TO CONTINUE
-
 ### Transmission
 
 How do we know that the Torah has been transmitted faithfully. Because children grow practicing it and studying it all their lives. There has been no other religion in which all men all life long have been studying their religion.
@@ -58,8 +54,10 @@ But the surrounding civilizations do affect the application of the Jewish princi
 
 ## Jewish Point of View
 
-TO CONTINUE
+The best explanation of who we are, what this world is, its goal, what we should do etc. is given by Moshe Chaim Luzzato in [The Way of God best translated by Aryeh Kaplan](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7).
+
+Everything that we perceive is a tool for coming closer to the Creator, for sharing the Divine with other souls, for helping other souls to discover the Divine, come closer to it and help others.
 
 ## Books
 
-TO CONTINUE
+
