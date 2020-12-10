@@ -58,6 +58,12 @@ The best explanation of who we are, what this world is, its goal, what we should
 
 Everything that we perceive is a tool for coming closer to the Creator, for sharing the Divine with other souls, for helping other souls to discover the Divine, come closer to it and help others.
 
+Why should we come closer to the Divine and share with others? We shouldn't, this is simply who we are, deep at our core we have no choice. Then why veil our soul by this world? To allow us the freedom to choose, to allow us to be mature, intelligent, strong, to allow us to earn the Infinity. Being born rich is not the same as earning the riches.
+
+### Tools
+
+TO CONTINUE
+
 ## Books
 
-
+TO CONTINUE
