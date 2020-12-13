@@ -295,6 +295,14 @@ When you start to change yourself, you face multiple obstacles. These obstacles 
 
 But there is one type of obstacle worth special attention. When you switch from poker to pool, you learn a new skill but essentially nothing changes. You are stay the same. But when you start to change yourself, you disbalance a stable system. Every effort you make will be met with equal force that will demonstrate itself in various ways: physical and emotional discomfort, opposite thoughts, people who will strive to keep you from changing in various ways, events that are 'just coincidences'.
 
+### Hardwiring
+
+When we start to perform a new activity repeatedly, neurons that run it connect in ways that make this activity automatic. This means several things for spiritual discovery:
+- it takes time, consistency, patience, effort
+- difficulty is just the process of rewiring
+- obstacles are just the previously hardwired habbits
+- it is possible
+
 ### Upside down
 
 This text is written for a person with a scientific attitude who would like to discover the spiritual. Imagine that you have discovered the spiritual. And now you are a Spiritual Being (Observer, Soul) living in this physical world. This is the Jewish approach that I am going to describe in a separate text. But briefly, you do not believe but you directly see that thoughts, feelings, body, possessions are just tools that do not have a value of their own. You use them to bring divinity to other beings.
