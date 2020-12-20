@@ -28,15 +28,20 @@ In Hebrew the Jewish religion is called התורה The Torah which literally mea
 ### Creator
 
 When I write the 'Creator', the natural question is how do we know that there is the Creator.
-I have 2 answers:
-- Practice. The Jewish religion is based on practice through which the soul gradually becomes more and more aware of itself and of its own Devine connection. What exactly the soul is I will explain below. For now think of it as of who you actually are at your core behind your clothes, body, feelings and thoughts.
-- Soul. Some people look at the world from the point of view of the soul from birth. Most people's awareness shifts into thoughts but the soul is still behind the veil of thoughts and although the awareness is in thoughts, thoughts that hint at the existence of the Divine are like a lighthouse for the soul. Even though such people do not experience the spiritual directly, they sub- or, more precisely, superconsciously know that they are Divine at the core.
 
-If these explanations are not persuasive, you should do certain practices that will lead you to the direct experience and unveiling of your most inner self as I described [here](../main/README.md).
+There is a list of standard answers such as prophecies, tradition, logical deduction etc.
 
-### What is soul
- 
-Anything that we perceive is external to our essence which is the soul. One of the by-products of a spiritual practice is to allow the soul to express itself, to become aware of itself, to be itself.
+But the real answer lies at our innermost core which is Divine. This core is the soul, or נשמה in Hebrew.
+
+Regarding the soul there are several types of people:
+- a person whose awareness is on the level of the soul.
+- a person whose awareness is in the resonable thinking. Reasonable thinking makes perfect sense as long as it allows the expansion fo awareness.
+- a person who lives through feelings. Although some feelings such the infinity and unity can lead this person to discover the soul, such a person is affected by everything and cannot live as a soul steadily.
+- a person whose awareness is in the social and physical. Such a person may believe in something Divine because under the leayers of the physical and social needs there still lies a Divine soul that tries to express itself.
+
+In all types of people the soul is striving to live and express itself because it is its nature.
+
+One fruit picked on a spiritual path is shifting the awareness into the soul.
 
 ### the Creator, the world, the souls
 
