@@ -62,13 +62,13 @@ Living as a soul means:
 
 ## Core difference between the Torah and most other religions and spiritual systems
 
-An important distinction of the Torah from most other religions and spiritual sistems is that the goal of the Torah is not the spiritual development but spiritual living. In most other religions and systems the goal is the personal spiritual benefit such as the feeling of infinity of love of merging into God, of nearness to God, of liberation and enlightment. In Judaism we do not seek the personal spiritual benefit. We seek to benefit other souls out of love for them and for God, we seek to serve God out of love for God.
+An important distinction of the Torah from most other religions and spiritual systems is that the goal of the Torah is not the spiritual development but spiritual living. In most other religions and systems the goal is the personal spiritual benefit such as the feeling of infinity of love of merging into God, of nearness to God, of liberation and enlightment. In Judaism we do not seek the personal spiritual benefit. We seek to benefit other souls out of love for them and for God, we seek to serve God out of love for God.
 
 Why? Because at the core we are already Divine, infinite, free, blissful etc. God made us this way. We can only be grateful and loving.
 
 The spiritual benefits that the other religions focus on are by-products of living as a soul.
 
-The goals of these other religions and spiritual systems contain a pitfall because to unite with God, to be with God etc. one must be as God who is not an egoist. [The Way of God](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7) and other books explain that God is perfect and does not have the need to create anything, therefore God did not create the world for himself but for us.
+The goals of these other religions and spiritual systems contain a pitfall because to unite with God, to be with God etc. one must be as God who is not an egoist. [The Way of God](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7) and other books explain that God is perfect and does not need anything, therefore God did not create the world for himself. God created the us - the Divine consciousnesses. God created this world that veils the Divine. God planted us in this world and at every instant we have the choice between the worldly and the Divine actions. Through these choices we gradually deserve our Divinity. A person who inherits the greatest wealth is never the same as a person who achieves the greatest wealth through creative and benefitial work.
 
 ## Tools for achieving the goal of creation
 
