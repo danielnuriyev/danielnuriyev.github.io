@@ -12,7 +12,7 @@ Therefore I have decided to share a few highlights and a few references to books
 
 The text is based on my personal experience as of now. My only hope is to keep improving.
 
-First I have to explain the source of Jewish spirituality, which is a formal part, and then I'll dive into the spirituality.
+First I have to explain the source of Jewish spirituality, which is a formal part, and then I'll dive into the spirituality. If you get board dive in [here](https://github.com/danielnuriyev/spirituality/blob/main/torah-spirituality.md)
 
 ## Sources
 
