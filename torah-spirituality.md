@@ -53,13 +53,24 @@ But the surrounding civilizations do affect the application of the Jewish princi
 
 The best explanation of who we are, what this world is, its goal, what we should do etc. is given by Moshe Chaim Luzzato in [The Way of God best translated by Aryeh Kaplan](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7).
 
-Everything that we perceive is a tool for living as a soul. Living as a soul means radiating light and love, being positively creative.
+Everything that we perceive is a tool for living as a soul. The tools are possessions and body.
+Living as a soul means:
+- using the tools for the benefit of others. Benefit may be physical such as providing a place to live and healthy food. It may be non physical such as being an example of a Divine life. _Others_ includes not only people.
+- being grateful for everything, treating problems as lessons, living with the awareness that God is here
+- minimizing the physical needs
+- unveiling the soul by calming the mind. I will explain this below. And by not limiting ourselves as long as the dreams are creative and benefitial.
 
-[TO CONTINUE]
+## Core difference between the Torah and most other religions and spiritual systems
 
-Why should we come closer to the Divine and share with others? We shouldn't, this is simply who we are, deep at our core we have no choice. Then why veil our soul by this world? To allow us the freedom to choose, to allow us to be mature, intelligent, strong, to allow us to earn the Infinity. Being born rich is not the same as earning the riches.
+An important distinction of the Torah from most other religions and spiritual sistems is that the goal of the Torah is not the spiritual development but spiritual living. In most other religions and systems the goal is the personal spiritual benefit such as the feeling of infinity of love of merging into God, of nearness to God, of liberation and enlightment. In Judaism we do not seek the personal spiritual benefit. We seek to benefit other souls out of love for them and for God, we seek to serve God out of love for God.
 
-### Tools
+Why? Because at the core we are already Divine, infinite, free, blissful etc. God made us this way. We can only be grateful and loving.
+
+The spiritual benefits that the other religions focus on are by-products of living as a soul.
+
+The goals of these other religions and spiritual systems contain a pitfall because to unite with God, to be with God etc. one must be as God who is not an egoist. [The Way of God](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7) and other books explain that God is perfect and does not have the need to create anything, therefore God did not create the world for himself but for us.
+
+## Tools for achieving the goal of creation
 
 TO CONTINUE
 
