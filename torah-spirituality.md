@@ -68,7 +68,13 @@ Why? Because at the core we are already Divine, infinite, free, blissful etc. Go
 
 The spiritual benefits that the other religions focus on are by-products of living as a soul.
 
-The goals of these other religions and spiritual systems contain a pitfall because to unite with God, to be with God etc. one must be as God who is not an egoist. [The Way of God](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7) and other books explain that God is perfect and does not need anything, therefore God did not create the world for himself. God created the us - the Divine consciousnesses. God created this world that veils the Divine. God planted us in this world and at every instant we have the choice between the worldly and the Divine actions. Through these choices we gradually deserve our Divinity. A person who inherits the greatest wealth is never the same as a person who achieves the greatest wealth through creative and benefitial work.
+The goals of these other religions and spiritual systems contain a pitfall because to unite with God, to be with God etc. one must be as God who is not an egoist. [The Way of God](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7) and other books explain that God is perfect and does not need anything, therefore God did not create the world for himself. 
+
+### The purpose of creation
+
+God created us - the Divine beings. God created this world that veils the Divine. God planted us in this world and at every instant we have the choice between the worldly and the Divine actions. Through these choices we gradually deserve our Divinity. A person who inherits the greatest wealth is never the same as a person who achieves the greatest wealth through creative and benefitial work.
+
+But why did God create us? Creation of Devine beings is the act of ultimate good.
 
 ## Tools for achieving the goal of creation
 
