@@ -72,11 +72,33 @@ The goals of these other religions and spiritual systems contain a pitfall becau
 
 ### The purpose of creation
 
-God created us - the Divine beings. God created this world that veils the Divine. God planted us in this world and at every instant we have the choice between the worldly and the Divine actions. Through these choices we gradually deserve our Divinity. A person who inherits the greatest wealth is never the same as a person who achieves the greatest wealth through creative and benefitial work.
+God created us - the Divine beings. God created this world that veils the Divine. God planted us in this world to give us the choice between the worldly and the Divine. Through these choices we gradually deserve our Divinity. A person who inherits the greatest wealth is never the same as a person who achieves the greatest wealth through creative and benefitial work.
 
-But why did God create us? Creation of Devine beings is the act of ultimate good.
+But why did God create us? Creation of Divine beings is the act of ultimate good.
 
-## Tools for achieving the goal of creation
+But how can a consciousness immersed in the physical needs and desires even know that there is the Divine.
+There are multiple ways.
+On one extreme, through experience. A completely material life is a sequence of suffering, fear and unsatisfied desires. All this expands a person's vision of the world. Usually through multiple lives.
+On the other extreme, through direct revelation.
+Judaism is a combination. Avraham (Abraham) realized the existence of God and God revealed Himself to Avraham. Avraham taught Yitskhaq (Isaac) about God, Isaac through spiritual life also because a prophet and so on.
+
+But knowing that there is God is not enough. One should also know which choices are Divine. This can also be deduced through meditation, contemplation, observation etc. This is what Avraham did. He observed all the Torah before it was given by God through Moshe (Moses).
+
+Some of the goals of the Torah are to teach us about the existence of God, about God's relation with the world, about how we should act in Divine ways. For example, gathering a harvest is a worldly affair. Gathering a harvest and leaving some of it to the poor as commanded by God is a Divine act.
+
+### Essense of commandments
+
+TO CONTINUE
+
+### Direct spiritual experience
+
+TO CONTINUE
+
+### Sevent commandments of Noah
+
+TO CONTINUE
+
+### Other religions
 
 TO CONTINUE
 
