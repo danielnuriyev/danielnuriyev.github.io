@@ -2,17 +2,15 @@
 
 This is a work in progress. So far I am just throwing here random ideas.
 
-This text is written for people interested in direct spiritual experience. The main reason for writing this is that increasingly more people are interested in the spiritual but most practical material is based on 'eastern' practices whereas the Jewish people have been transmitting and developing spirituality for 4000 years since Abraham. 
+This text is written for people interested in direct spiritual experience. The main reason for writing this is that increasingly more people are interested in the spiritual but most practical material is based on 'eastern' practices whereas the Jewish people have been transmitting and developing spirituality for over 4000 years since Abraham. 
 
-The Jewish spiritual practice is not easily available because if you're a Jewish 'guru' (rebbe, for example), first of all transmit it to people around you. If you feel that your experience and knowledge are broadly useful, you publish a book in Hebrew. Why Hebrew? Because languages come and go but Hebrew stays. Therefore to find a Jewish spiritual master requires a true desire and a consistent effort whereas finding a YouTube video about meditation is a just few seconds away. 
+The Jewish spiritual practice is not easily available because Jewish spiritual masters first of all transmit it to people around them. If they feel that their experience and knowledge are broadly useful, they or their students publish books in Hebrew. Why Hebrew? Because languages come and go but Hebrew stays. Therefore to find a Jewish spiritual master requires a true desire and a consistent effort whereas finding a YouTube video about meditation is a just few seconds away. 
 
-An opposite issue is that there is increasingly more material about the Jewish spirituality in English but it's either not intended as a practical guide or it is shallow.
+An opposite issue is that there is increasingly more material about the Jewish spirituality in English but it's either not intended as practical guidance or it is shallow.
 
-Therefore I have decided to share a few highlights and a few references to books. The main emphasis is on constant focused parctice, not on belief, not on understanding, not on knowledge. The study of Torah, which is included in the list, starts with sitting, reading and trying to understand but these are just tools. 
+Therefore I have decided to share a few highlights and a few references to books. The main emphasis is on constant focused parctice, not on belief, not on understanding, not on knowledge.
 
-The text is based on my personal experience as of now. My only hope is to keep improving.
-
-First I have to explain the source of Jewish spirituality, which is a formal part, and then I'll dive into the spirituality. If you get board dive in [here](https://github.com/danielnuriyev/spirituality/blob/main/torah-spirituality.md#jewish-point-of-view)
+First I have to explain the source of Jewish spirituality, which is a formal part, and then I'll dive into the spirituality.
 
 ## Sources
 
@@ -45,9 +43,7 @@ One fruit picked along a spiritual path is shifting the awareness into the soul.
 
 ### Transmission
 
-How do we know that the Torah has been transmitted faithfully. Because children grow practicing it and studying it all their lives. There has been no other religion in which all men all life long have been studying their religion.
-
-But the surrounding civilizations do affect the application of the Jewish principles and laws. For example, in the past we read a Torah scroll by the candle light, now we read the same scroll under the electic light.
+How do we know that the Torah has been transmitted faithfully. Because children grow practicing it and studying it all their lives. There has been no other religion in which all men are commanded to study and transmit their religion.
 
 ## Jewish Point of View
 
@@ -55,9 +51,9 @@ The best explanation of who we are, what this world is, its goal, what we should
 
 Everything that we perceive is a tool for living as a soul. The tools are possessions and body.
 Living as a soul means:
-- using the tools for the benefit of others. Benefit may be physical such as providing a place to live and healthy food. It may be non physical such as being an example of a Divine life. _Others_ includes not only people.
-- being grateful for everything, treating problems as lessons, living with the awareness that God is here
-- minimizing the physical needs
+- using the tools for the benefit of others. Benefit may be physical such as providing a place to live and healthy food. It may be non physical such as feeling gratitude. _Others_ includes not only people.
+- being grateful for everything, treating problems as lessons, living with the awareness that God is here.
+- minimizing the physical needs.
 - unveiling the soul by calming the mind. I will explain this below. And by not limiting ourselves as long as the dreams are creative and benefitial.
 
 ## Core difference between the Torah and most other religions and spiritual systems
@@ -88,7 +84,11 @@ Some of the goals of the Torah are to teach us about the existence of God, about
 
 ### Essense of commandments
 
-One goal of the commandments is for the soul to act in Divine.
+One goal of the commandments is for the soul to act in Divine ways. Most commandments have a physical component. For example, thanking God for a meal must be done through speech and not only in the heart and the mind. Because the goal is for the soul to use the physical as the tool, for controlling the physical, for changing the physical into the spiritual, for tunnelling the Divinity into the physical world.
+
+One other **core difference of the Torah from most other religions** is not trying to escape the physical in order to get into the Heaven but to enlighten the physical.
+
+TO CONTINUE
 
 ### Direct spiritual experience
 
