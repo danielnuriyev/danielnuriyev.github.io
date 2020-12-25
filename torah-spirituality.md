@@ -80,7 +80,7 @@ But how can a consciousness immersed in the physical needs and desires even know
 There are multiple ways.
 On one extreme, through experience. A completely material life is a sequence of suffering, fear and unsatisfied desires. All this expands a person's vision of the world. Usually through multiple lives.
 On the other extreme, through direct revelation.
-Judaism is a combination. Avraham (Abraham) realized the existence of God and God revealed Himself to Avraham. Avraham taught Yitskhaq (Isaac) about God, Isaac through spiritual life also because a prophet and so on.
+Judaism is a combination. Avraham (Abraham) realized the existence of God and God revealed Himself to Avraham. Avraham taught Yitskhaq (Isaac) about God, Isaac through spiritual life also became a prophet and so on.
 
 But knowing that there is God is not enough. One should also know which choices are Divine. This can also be deduced through meditation, contemplation, observation etc. This is what Avraham did. He observed all the Torah before it was given by God through Moshe (Moses).
 
@@ -88,7 +88,7 @@ Some of the goals of the Torah are to teach us about the existence of God, about
 
 ### Essense of commandments
 
-TO CONTINUE
+One goal of the commandments is for the soul to act in Divine.
 
 ### Direct spiritual experience
 
