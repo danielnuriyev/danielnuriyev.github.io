@@ -88,9 +88,19 @@ One goal of the commandments is for the soul to act in Divine ways. Most command
 
 One other **core difference of the Torah from most other religions** is not trying to escape the physical in order to get into the Heaven but to enlighten the physical.
 
-TO CONTINUE
+It is important to realize that the commandments are for the soul. The commandments are not for the body and not for the society. The goal of the commandments is not to make us healthy and successful, not to make our society nice to live in. All these are certain by-products of souls functioning Divinely. The prohibition to murder certainly makes life better for everyone. And kosher food certainly has health benefits, although there are better diets. But I have never seen a scientific explanation for earing a tefillin, only allegorical ones.
+
+So why should one observe a commandment without knowing its meaning. For the same reason why kids who listen to their parents do not stick a piece of metal into an electric socket. Parents know more about electricity. The Creator knows more about His world. A child can gradually learn. A Jew can gradually grow spiritually and directly experience the meanings of commandments.
 
 ### Direct spiritual experience
+
+TO CONTINUE
+
+#### Through commandments
+
+TO CONTINUE
+
+#### Through behavior, attitude, feelings, words, point of view, meditation
 
 TO CONTINUE
 
