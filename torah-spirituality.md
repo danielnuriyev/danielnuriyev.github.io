@@ -47,7 +47,7 @@ How do we know that the Torah has been transmitted faithfully. Because children 
 
 ## Jewish Point of View
 
-The best explanation of who we are, what this world is, its goal, what we should do etc. is given by Moshe Chaim Luzzato in [The Way of God best translated by Aryeh Kaplan](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7).
+The best explanation of who we are, what this world is, its goal, what we should do etc. is given by Moshe Chaim Luzzato in [The Way of God best translated by Aryeh Kaplan](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7) and its condensed version Essay of Fundamentals in the end of the same book.
 
 Everything that we perceive is a tool for living as a soul. The tools are possessions and body.
 Living as a soul means:
