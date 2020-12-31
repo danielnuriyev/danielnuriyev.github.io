@@ -92,9 +92,37 @@ It is important to realize that the commandments are for the soul. The commandme
 
 So why should one observe a commandment without knowing its meaning. For the same reason why kids who listen to their parents do not stick a piece of metal into an electric socket. Parents know more about electricity. The Creator knows more about His world. A child can gradually learn. A Jew can gradually grow spiritually and directly experience the meanings of commandments.
 
-### Direct spiritual experience
+### What is direct spiritual experience
 
-TO CONTINUE
+I define the spiritual as something that is beyond everything that we perceive. 
+
+We perceive the world that is outside of our body through the senses. We also perceive some of what happens inside the body on the physiological level. We also have various levels of feelings. And, we have thoughts.
+
+It is possible to expand the range of perception through changes in diet, exercises, sleep, environment, relations, focus etc. It is even possible to develop senses additional to the existing 7. Why 7? Because in addition to the five physical senses: touch, taste, smell, hearing and vision - it is also possible to develop the feelings to such an extent as to feel other people at a distance and transmit them a desired feeling either low, such as fear, or sublime, such as love and happiness. This gives us 6. The 7th sense is the brain that can be developed to perceive and transmit thoughts. Actually, this 7th sense is not only about thoughts. This is a big, separate and irrelevant topic.
+
+But whatever we perceive through the expanded senses will still be external to us. Therefore I do not call this spiritual.
+
+Another big change that we can undergo is our interaction with the reality. At some level the reality clearly interacts with us. Things around stop to be random but a clear result of our past and current actions, feelings and thoughts or clear signs of what's coming next. This is the first step in the direction of the spiritual because it is a core belief in Judaism that the closer we are to God the closer He is to us.
+
+But the true spiritual begins when ... TO BE CONTINUED
+
+
+
+### Difference between spiritual experience and spiritual direction
+
+TO BE CONTINUED
+
+### Why we need it
+
+TO BE CONTINUED
+
+### Is it necessary
+
+TO BE CONTINUED
+
+### How to experience the spiritual
+
+TO BE CONTINUED
 
 #### Through commandments
 
