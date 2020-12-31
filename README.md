@@ -305,5 +305,6 @@ When we start to perform a new activity repeatedly, neurons that run it connect 
 
 ### Upside down
 
-This text is written for a person with a scientific attitude who would like to discover the spiritual. Imagine that you have discovered the spiritual. And now you are a Spiritual Being (Observer, Soul) living in this physical world. This is the Jewish approach that I am going to describe in a separate text. But briefly, you do not believe but you directly see that thoughts, feelings, body, possessions are just tools that do not have a value of their own. You use them to bring divinity to other beings.
+This text is written for a person with a scientific attitude who would like to discover the spiritual. Imagine that you have discovered the spiritual. And now you are a Spiritual Being (Observer, Soul) living in this physical world. This is the Jewish approach that I am going to describe in a separate text. But briefly, you do not believe but you directly see that thoughts, feelings, body, possessions are just tools that do not have a value of their own. You use them to bring divinity to other beings. This approach is for the benefit of others. This is the true spirituality. When a person strives to grow spiritually, it is for the personal benefit. When a person lives for the benefits of others, growth in experiencing the spiritual is a by-product.
+
 
