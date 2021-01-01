@@ -64,7 +64,7 @@ Why? Because at the core we are already Divine, infinite, free, blissful etc. Go
 
 The spiritual benefits that the other religions focus on are by-products of living as a soul.
 
-The goals of these other religions and spiritual systems contain a pitfall because to unite with God, to be with God etc. one must be as God who is not an egoist. [The Way of God](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7) and other books explain that God is perfect and does not need anything, therefore God did not create the world for himself. 
+The goals of these other religions and spiritual systems contain a pitfall because to unite with God, to be with God etc. one must be as God who is not an egoist. [The Way of God, Essay of Fundamentals](https://www.amazon.com/gp/product/087306769X/ref=dbs_a_def_rwt_hsch_vapi_thcv_p1_i7) and other books explain that God is perfect and does not need anything, therefore God did not create the world for himself. 
 
 ### The purpose of creation
 
@@ -106,7 +106,7 @@ Another big change that we can undergo is our interaction with the reality. At s
 
 But the true spiritual begins when you step out of everything that is perceived and exist as your true self. This is a tricky phrase but I hope to be able to explain this later.
 
-### Difference between spiritual experience and spiritual direction
+### Difference between spiritual experience and the true spirituality
 
 The process of expanding the perception and the abilities is intriguing and pleasant. People usually do this out of curiocity and because the process brings numerous benefits starting with health and ending in the feeling of bliss, in expanded perception and abilities. In other words, the whole process is either a natural growth, like a tree rising up to the sun or the whole process is done for personal benefit. The benefit is not necessarily malicious. It can be done for good goals such as being near God or for attaining a liberation.
 
@@ -116,10 +116,11 @@ This is the difference between technical spiritual achivements and the 'true spi
 
 ### Why we need it
 
-So, if proactively searching for the spiritual is less good than living a Divine life, why am I writing about it?
-Because ...
+So, if living a Divine life is preferable to searching the spiritual, why am I writing about it?
+Because after we are born our awarensss gradually shifts into the physical whereas the Divine soul strives to be free and express itself. 
+The soul craves infinity, freedom, creativity, power, love. These innate inclinations can be expressed in the physical world. Desire for infinity can be expressed as a desire to travel, to ammass possessions, friends, knowledge. The desire for freedom can be expressed as a desire of safety and non-atachment. The desire of love can be expressed as a chase for pleasures. But the same basic desires of the soul can lead a person to the search for the Divine experiences.
 
-TO BE CONTINUED
+Therefore these innate desires of the soul cannot be blocked.
 
 ### Is it necessary
 
