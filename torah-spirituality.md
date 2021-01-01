@@ -155,11 +155,15 @@ Parents. One example is the commandment to respect the parents
 
 Spouse, friends, neighbors, colleagues. Examples: providing the wife, caring for widows and orphans, loving fellows, caring for the poor, respecting the property, paying on time, non-stealing and many many more.
 
+Children. Example: teaching the Torah.
+
 Animals. Examples: letting them rest on shabbat, not causing suffering.
 
 Nature. Example: prohibition to distroy anything without need.
 
-God. Examples: 
+God. Examples: behaving respectfully towards God, His Torah, Holy objects and places, Torah scollars etc.; being explicitly grateful through blessings etc.; And many others.
+
+TO CONTINUE
 
 #### Through commandments
 
