@@ -114,8 +114,10 @@ But even if the process is done for a spiritual goal, it is done for a personal 
 
 This is the difference between technical spiritual achivements and the 'true spirituality'. Two people can have the same level of spiritual abilities but one attained them through spiritual practices whereas the other one attained these abilities while living a Divine life for the benefit of others.
 
-
 ### Why we need it
+
+So, if proactively searching for the spiritual is less good than living a Divine life, why am I writing about it?
+Because ...
 
 TO BE CONTINUED
 
