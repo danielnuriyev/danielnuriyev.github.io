@@ -133,11 +133,17 @@ A soul that has spent its life caring for others can be of 3 types:
 
 ### Is it necessary
 
-Is it necessary to search the spiritual? It is the nature of the soul. It should no be blocked. But it is more important to care for others.
+Is it necessary to search the spiritual? It is the nature of the soul. It cannot no be blocked. But it is more important to care for others.
 
 ### How to experience the spiritual
 
-It is not necessary to experience the spiritual. It is the nature of the soul to express itself. In this world ... 
+It is not necessary to experience the spiritual. It is the nature of the soul to express itself. It will find a way out. When a child is born, the parents gradually teach the child how to survive and prosper in the physical world. The awareness shifts into the physical. As this happens, the soul starts to seek a way out. It is like a child without a guidance. Being aware only of the physical tools it chooses what corresponds to its divine nature. For example, it may choose to explore the world as an expression of its infinite nature. Exploring the world is a long way to deepening self awareness and caring for others. If a soul does not have a person who guides it, it may use information that will guide it to its goal. The best guidance is by the One who created the soul and the world. Therefore it is essential for a soul to study and follow the Torah. 
+
+Studying the Torah is a long process too. But any process of growth is gradual. God did not give us something that is beyond our ability. The Torah is written so that every soul will find a good starting point for itself. Some souls will be fascinated by the production of the parchment for a Torah scroll. Another soul may seek the transcendental hidden among the letters of the Torah. Etc. Therefore the study of the Torah does lead into Infinity. 
+
+Broadening the mind through the study unavoidably leads to better choices.
+
+In addition to studying the Torah, it is also important to live by it. Because a soul must use the body as the tool and not just follow its needs and desires. A soul should learn to use the body as the tool for caring for others.
 
 #### Through commandments
 
