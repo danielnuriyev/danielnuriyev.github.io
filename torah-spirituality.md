@@ -120,15 +120,24 @@ So, if living a Divine life is preferable to searching the spiritual, why am I w
 Because after we are born our awarensss gradually shifts into the physical whereas the Divine soul strives to be free and express itself. 
 The soul craves infinity, freedom, creativity, power, love. These innate inclinations can be expressed in the physical world. Desire for infinity can be expressed as a desire to travel, to ammass possessions, friends, knowledge. The desire for freedom can be expressed as a desire of safety and non-atachment. The desire of love can be expressed as a chase for pleasures. But the same basic desires of the soul can lead a person to the search for the Divine experiences.
 
-Therefore these innate desires of the soul cannot be blocked.
+Therefore these innate desires of the soul cannot be blocked. It is natural for the soul to liberate itself. But during this process the soul is presented with 3 choices: to give in to the physical needs and desires, to liberate itself, to serve God and help others.
+
+A soul that loses control and awareness into the physical, is a soul who has slept through its life. It either needs troubles to see the transient nature of the world or it will suffer after leaving the body and looking back at the life. 
+
+A soul that has reached God through spiritual growth, still needs to care for others to be a fully Divine.
+
+A soul that has spent its life caring for others can be of 3 types:
+- a soul without self awareness. A person's awareness of oneself may be in the intellect or in the feelings and decisions are made on there. Even if the awareness of such a person will not shift deeper by the end of life, after leaving the body the soul will see that its lived a truly Divine life.
+- a soul without self awareness but with information about a soul's duty to care.
+- a soul with self awareness.
 
 ### Is it necessary
 
-TO BE CONTINUED
+Is it necessary to search the spiritual? It is the nature of the soul. It should no be blocked. But it is more important to care for others.
 
 ### How to experience the spiritual
 
-TO BE CONTINUED
+It is not necessary to experience the spiritual. It is the nature of the soul to express itself. In this world ... 
 
 #### Through commandments
 
