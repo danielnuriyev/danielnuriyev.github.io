@@ -145,6 +145,22 @@ Broadening the mind through the study unavoidably leads to better choices.
 
 In addition to studying the Torah, it is also important to live by it. Because a soul must use the body as the tool and not just follow its needs and desires. A soul should learn to use the body as the tool for caring for others.
 
+#### Types of commandments
+
+There are various ways to classify the commandments. One way is by the target of caring.
+
+Oneself. In order to be able to care for others, a soul must learn to care for itself and its body. One example of such a commandment is kosher food. Kosher food restructures the body to be a transmitter of the Divine light.
+
+Parents. One example is the commandment to respect the parents
+
+Spouse, friends, neighbors, colleagues. Examples: providing the wife, caring for widows and orphans, loving fellows, caring for the poor, respecting the property, paying on time, non-stealing and many many more.
+
+Animals. Examples: letting them rest on shabbat, not causing suffering.
+
+Nature. Example: prohibition to distroy anything without need.
+
+God. Examples: 
+
 #### Through commandments
 
 TO CONTINUE
