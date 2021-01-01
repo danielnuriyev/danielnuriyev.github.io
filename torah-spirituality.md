@@ -104,13 +104,16 @@ But whatever we perceive through the expanded senses will still be external to u
 
 Another big change that we can undergo is our interaction with the reality. At some level the reality clearly interacts with us. Things around stop to be random but a clear result of our past and current actions, feelings and thoughts or clear signs of what's coming next. This is the first step in the direction of the spiritual because it is a core belief in Judaism that the closer we are to God the closer He is to us.
 
-But the true spiritual begins when ... TO BE CONTINUED
-
-
+But the true spiritual begins when you step out of everything that is perceived and exist as your true self. This is a tricky phrase but I hope to be able to explain this later.
 
 ### Difference between spiritual experience and spiritual direction
 
-TO BE CONTINUED
+The process of expanding the perception and the abilities is intriguing and pleasant. People usually do this out of curiocity and because the process brings numerous benefits starting with health and ending in the feeling of bliss, in expanded perception and abilities. In other words, the whole process is either a natural growth, like a tree rising up to the sun or the whole process is done for personal benefit. The benefit is not necessarily malicious. It can be done for good goals such as being near God or for attaining a liberation.
+
+But even if the process is done for a spiritual goal, it is done for a personal benefit.
+
+This is the difference between technical spiritual achivements and the 'true spirituality'. Two people can have the same level of spiritual abilities but one attained them through spiritual practices whereas the other one attained these abilities while living a Divine life for the benefit of others.
+
 
 ### Why we need it
 
