@@ -273,6 +273,13 @@ In this schema when the Observer observes, it is presented with the thought that
 - by observing this thought, the Observer is aware of itself in the physical world.
 - the thought blocks the Observer from the direct experience of the reality and from expressing itself directly in the physical world. More about it below.
 
+**Modes of awareness**
+
+The awareness can be 
+- completely in the Observer
+- completely in the observed. People call this *being in the flow*.
+- shift between the two. In this case you focus on what you do but do not lose control.
+
 An important step in the spiritual discovery is to calm the mind to the state of no thoughts. I would love to describe to you what you will experience when your mind is thoughtless for continuous time but the goal of this text is to bring you to that point and not to affect your experience by preconceived ideas.
 
 ### Experience vs expression
