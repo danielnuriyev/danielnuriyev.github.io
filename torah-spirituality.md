@@ -133,11 +133,11 @@ A soul that has spent its life caring for others can be of 3 types:
 
 ### Is it necessary
 
-Is it necessary to search the spiritual? It is the nature of the soul. It cannot no be blocked. But it is more important to care for others.
+Is it necessary to search for the spiritual? It is the nature of the soul. It cannot no be blocked. But it is more important to care for others.
 
 ### How to experience the spiritual
 
-It is not necessary to experience the spiritual. It is the nature of the soul to express itself. It will find a way out. When a child is born, the parents gradually teach the child how to survive and prosper in the physical world. The awareness shifts into the physical. As this happens, the soul starts to seek a way out. It is like a child without a guidance. Being aware only of the physical tools it chooses what corresponds to its divine nature. For example, it may choose to explore the world as an expression of its infinite nature. Exploring the world is a long way to deepening self awareness and caring for others. If a soul does not have a person who guides it, it may use information that will guide it to its goal. The best guidance is by the One who created the soul and the world. Therefore it is essential for a soul to study and follow the Torah. 
+It is not necessary to experience the spiritual. It is the nature of the soul to express itself. It will find a way out. When a child is born, the parents gradually teach the child how to survive and prosper in the physical world. The awareness shifts into the physical. As this happens, the soul starts to seek a way out. It is like a child without a guidance. Being aware only of the physical tools, it chooses what corresponds to its divine nature. For example, it may choose to explore the world as an expression of its infinite nature. Exploring the world is a long way to deepening self awareness and caring for others. If a soul does not have a person who guides it, it may use information that will guide it to its goal. The best guidance is by the One who created the soul and the world. Therefore it is essential for a soul to study and follow the Torah. 
 
 Studying the Torah is a long process too. But any process of growth is gradual. God did not give us something that is beyond our ability. The Torah is written so that every soul will find a good starting point for itself. Some souls will be fascinated by the production of the parchment for a Torah scroll. Another soul may seek the transcendental hidden among the letters of the Torah. Etc. Therefore the study of the Torah does lead into Infinity. 
 
@@ -149,21 +149,21 @@ In addition to studying the Torah, it is also important to live by it. Because a
 
 There are various ways to classify the commandments. One way is by the target of caring.
 
-Oneself. In order to be able to care for others, a soul must learn to care for itself and its body. One example of such a commandment is kosher food. Kosher food restructures the body to be a transmitter of the Divine light.
+**Oneself**. In order to be able to care for others, a soul must learn to care for itself and its body. One example of such a commandment is kosher food. Kosher food restructures the body to be a transmitter of the Divine light. This also introduces balance which is a core principle.
 
-Parents. One example is the commandment to respect the parents
+**Parents**. One example is the commandment to respect the parents.
 
-Spouse, friends, neighbors, colleagues. Examples: providing the wife, caring for widows and orphans, loving fellows, caring for the poor, respecting the property, paying on time, non-stealing and many many more.
+**Spouse, friends, neighbors, colleagues**. Examples: providing the wife, caring for widows and orphans, loving fellows, caring for the poor, respecting the property, paying on time, non-stealing and many many more.
 
-Children. Example: teaching the Torah.
+**Children**. Example: teaching the Torah.
 
-Animals. Examples: letting them rest on shabbat, not causing suffering.
+**Animals**. Examples: letting them rest on shabbat, not causing suffering.
 
-Nature. Example: prohibition to distroy anything without need.
+**Nature**. Example: prohibition to distroy anything without need.
 
-God. Examples: behaving respectfully towards God, His Torah, Holy objects and places, Torah scollars etc.; being explicitly grateful through blessings etc.; And many others.
+**God**. Examples: behaving respectfully towards God, His Torah, Holy objects and places, Torah scollars etc.; being explicitly grateful through blessings etc.; And many others.
 
-TO CONTINUE
+Some commandments are hard to understand. Either their mechanism or their goal are not clear. For example, tefillin. This simply means one thing: you do not understand them at the current stage of your life. It is possible to understand them through gradually changing yourself. In order to change yourself you should do them. You will never understand them if you don't do them. Chicken and egg. You can find various explanations for such commandments but they will always be external to your experience. You can know everything about an apple but never taste it. Before you start to understand a commandment, use it for establishing a close relationship with God by doing it for Him.
 
 #### Through commandments
 
