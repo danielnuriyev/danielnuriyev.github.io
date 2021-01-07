@@ -275,6 +275,14 @@ In this schema when the Observer observes, it is presented with the thought that
 
 An important step in the spiritual discovery is to calm the mind to the state of no thoughts. I would love to describe to you what you will experience when your mind is thoughtless for continuous time but the goal of this text is to bring you to that point and not to affect your experience by preconceived ideas.
 
+### Experience vs expression
+
+Once you experience yourself as the Observer who Chooses to Focus and shift the Awareness into the object of observation, you can understand the difference between a spiritual experience and self expression.
+
+A spiritual experience is what you observe external to your core (Observer). 
+
+Spiritual expression is when the Observer is aware of itself and is free to observe, choose and act. This way the Observer is not dependent on experiences but is free to act and to express its Divine nature using the observable tools.
+
 ### Why you are here
 
 You have read so far because you - the Soul - is looking for a way out from the veil of thoughts.
