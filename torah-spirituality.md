@@ -167,7 +167,21 @@ Some commandments are hard to understand. Either their mechanism or their goal a
 
 #### Through commandments
 
-TO CONTINUE
+Most commandments have a physical element. This way a soul can use the body for behaving Divinely in the physical world. 
+
+The mere fact that a soul uses the body instead of following the body's desires increases the soul's self expression in the physical.
+
+But this way of performing the commandmenmts is incomplete because between the soul and the body there are 2 additional components: mind and feelings. The full chain is: soul -> mind -> feelings -> body. All 4 must participate in performing a physical commandment. For example, when saying a blessing, it should be performed with the feeling of gratitude (feeling) and full concentration and intention and direction towards God.
+
+Regarding the feelings, a good baseline are the feelings of submission and gratitude.
+
+Regarding the mind, a good baseline are concentration and awareness of the presence of God.
+
+In order to involve the mind, feelings and body in a commandmet, a commandment should be performed as a sequence: 
+- first realize that you are in the presence of God
+- then intend to perform the commandment
+- then feel gratitude. These are your feelings. You can create them. It is just a matter of practice.
+- then do the commandment
 
 #### Through behavior, attitude, feelings, words, point of view, meditation
 
