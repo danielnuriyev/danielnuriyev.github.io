@@ -185,7 +185,9 @@ In order to involve the mind, feelings and body in a commandmet, a commandment s
 
 #### Through behavior, attitude, feelings, words, point of view, meditation
 
-TO CONTINUE
+But not all commandments have the physical aspect. The first Jewish author who focused on these commandments was [Bahya Ibn Pakuda](https://en.wikipedia.org/wiki/Bahya_ibn_Paquda) (1050–1120) in his bool [Duties of the Heart](https://www.amazon.com/Duties-Classics-Library-English-Hebrew/dp/0873067657). He went over all earlier writings starting with the Torah and wrote about commandments perfored through the behavior, attitude, feelings, mind at all time even when not performing a specific physical commandment.
+
+(I will write about this more)
 
 ### Sevent commandments of Noah
 
