@@ -183,13 +183,15 @@ In order to involve the mind, feelings and body in a commandmet, a commandment s
 - then feel gratitude. These are your feelings. You can create them. It is just a matter of practice.
 - then do the commandment
 
-#### Through behavior, attitude, feelings, words, point of view, meditation
+#### Through behavior, attitude, feelings, words
 
-But not all commandments have the physical aspect. The first Jewish author who focused on these commandments was [Bahya Ibn Paquda](https://en.wikipedia.org/wiki/Bahya_ibn_Paquda) (1050–1120) in his bool [Duties of the Heart](https://www.amazon.com/Duties-Classics-Library-English-Hebrew/dp/0873067657). He went over all earlier writings starting with the Torah and wrote about commandments perfored through the behavior, attitude, feelings, mind at all time even when not performing a specific physical commandment.
+But not all commandments have the physical aspect. The first Jewish author who focused on these commandments was [Bahya Ibn Paquda](https://en.wikipedia.org/wiki/Bahya_ibn_Paquda) (1050–1120) in his book [Duties of the Heart](https://www.amazon.com/Duties-Classics-Library-English-Hebrew/dp/0873067657). He went over all earlier writings starting with the Torah and wrote about commandments perfored through the behavior, attitude, feelings, mind at all time even when not performing a specific physical commandment. An online version of the book is [here](https://www.sefaria.org/Duties_of_the_Heart?lang=bi). The focus of the book is on the relationship between a human and God. This certainly is a must but in this text I am focusing on the Divine actions of a human towards others. 
 
-(I will write about this more)
+Therefore I would like to mention a later book [Palm Tree of Devorah](https://www.amazon.com/Palm-Tree-Devorah-English-Hebrew/dp/1568710275) by [Moses ben Jacob Cordovero](https://en.wikipedia.org/wiki/Moses_ben_Jacob_Cordovero) (1522–1570) in which the author describes how to behave in this world in the same was as God behaves with us. An online version of the book is [here](https://www.sefaria.org/Sefer_Tomer_Devorah?lang=bi).
 
-### Sevent commandments of Noah
+Having mentioned this book I should not add anything else about the behavior, attitude, feelings, words. If you are interested in Divine living, you should read and follow this book.
+
+### Seven commandments of Noah
 
 TO CONTINUE
 
