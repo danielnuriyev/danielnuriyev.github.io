@@ -1,6 +1,8 @@
-# Jewish Spirituality
+# 
 
-This is a work in progress. So far I am just throwing here random ideas.
+This is a dead end. I am rewriting this.
+
+
 
 This text is written for people interested in direct spiritual experience. The main reason for writing this is that increasingly more people are interested in the spiritual but most practical material is based on 'eastern' practices whereas the Jewish people have been transmitting and developing spirituality for over 4000 years since Abraham. 
 
