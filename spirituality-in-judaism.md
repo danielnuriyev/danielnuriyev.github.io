@@ -50,7 +50,25 @@ Thus, in this text _spiritual_ refers to
 
 ## Spiritual Discovery
 
+Spiritual discovery is the process during which the spiritual researcher shifts the focus 
+- away from the external world
+- away from the body
+- away from the feelings
+- away from thoughts
+When the focus is withdrawn, a new level of reality gradually becomes evident.
+This is what people call _spiritual growth_, _spiritual development_.
+
+### Why some people are attracted to the spiritual discovery
+
 TO CONTINUE
+
+### General spiritual discovery
+
+### Torah tools for spiritual discovery
+
+## Spiritual Living
+
+
 
 
 
