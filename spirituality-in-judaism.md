@@ -70,7 +70,6 @@ The main principle is to peel off layers:
 
 **declutter time**
 The goal is to spend time doing fewer and more important things.
-TODO
 
 **declutter space**
 The goal is to be in a place that has minimum objects, ordered, clean, aired, quiet.
@@ -88,12 +87,16 @@ Eat valuable nutrients in amounts that don't make you sleepy. Organic, free rang
 This is a bit opposite to decluttering because this requires proactive exercise of 2 types: exercises that cause you to breathe, like fast walking, and stretching. Stamina exercises clean the body, stretching puts bones in place. This is important for healthy circulation.
 
 **calm down the feelings**
-Be calm no matter what. It is not the same as emotionless, on the contrary, it leads to steady happiness.
+- Be calm no matter what. It is not the same as emotionless, on the contrary, it leads to steady happiness.
+- Be forgiving, respectful, patient, grateful, kind, caring. 
 
-**attitude**
 TODO
 
-**world view**
+**attitude**
+- Detach what you perceive from your understanding of what you perceive. Perceive without explaining to yourself.
+- Get rid of all limiting believes. When you think that something is impossible, simply replace this thought with the opposite. These are your thoughts, after all. Do not think about how 'it' can be possible because this way you will limit yourself.
+- When you have to or you choose to act, an action should be beneficial, respectful, patient, grateful, kind, caring to you and the world. This is not directly related to the spiritual discovery but as I explain later, spiritual discovery is only half of the way. If you do not become caring at this stage, you will not be able to rise higher / dive deeper.
+
 TODO
 
 **calm down the mind**
