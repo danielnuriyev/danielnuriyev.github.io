@@ -60,9 +60,44 @@ This is what people call _spiritual growth_, _spiritual development_.
 
 ### Why some people are attracted to the spiritual discovery
 
-TO CONTINUE
+Because the core of every human being is the soul that seeks any opportunity to express itself through the layers of thoughts, feelings, social and physical desires. And it's not easy because the awareness is constantly attracted by anything. That's why even when a person has random thoughts that there is something beyond the usual perceptions, most people fall back asleep.
+
+But since you are here, read about the steps to become selft aware.
 
 ### General spiritual discovery
+
+The main principle is to peel off layers:
+
+**declutter time**
+The goal is to spend time doing fewer and more important things.
+
+**declutter space**
+The goal is to be in a place that has minimum objects, ordered, clean, aired, quiet.
+
+**declutter ecomonic life**
+Buy only what is absolutely necessary. Invest the rest. Donate and throw anything you don't need.
+
+**declutter social life**
+Minimize the number of social interactions to people who care about you and who you should care about.
+
+**clean the body**
+Eat valuable nutrients in amounts that don't make you sleepy. Organic, free range, vegetarian are great pluses.
+
+**energized body**
+This is a bit opposite to decluttering because this requires proactive exercise of 2 types: exercises that cause you to breathe, like fast walking, and stretching. Stamina exercises clean the body as well, stretching puts bones in place. This is important for healthy circulation.
+
+**calm down the feelings**
+Be calm no matter what. It is not the same as emotionless, on the contrary, it leads to steady happiness.
+
+**calm down the mind**
+Minimize the info input to what you really need. Focus fully on anything that you do. Rest.
+
+**meditate**
+Start with observing the thoughts from aside without diving into them because in the depth of your current mind, thoughts is the deepest layer that you are familiar with. As the thoughts wade away, you will face 2 opposite phenomena:
+- the mind will become more energized because its energy is not spent on thinking, your existing mental abilities will become faster, clearer etc. You will also discover new mental abilities that were dormant, but they are still a part of the existing mind. The trick here is not to dive into them.
+- the one who is observing the thoughts - you, who you really are at the core, the soul - will become increasingly proactive... This level of consciousness is to new to most people that I can explain it only by the analogy which is like descibing the taste of an apple. Therefore, just go for it. It leads to yourself and to a next level of reality, a next level of decision making and living.
+
+Questions to answer: why is this needed, is this needed, isn't the way up too monastic, does this lead to God, what next, is what i am writing true, 
 
 ### Torah tools for spiritual discovery
 
