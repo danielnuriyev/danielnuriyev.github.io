@@ -70,6 +70,7 @@ The main principle is to peel off layers:
 
 **declutter time**
 The goal is to spend time doing fewer and more important things.
+TO DO
 
 **declutter space**
 The goal is to be in a place that has minimum objects, ordered, clean, aired, quiet.
@@ -89,6 +90,9 @@ This is a bit opposite to decluttering because this requires proactive exercise 
 **calm down the feelings**
 Be calm no matter what. It is not the same as emotionless, on the contrary, it leads to steady happiness.
 
+**attitude**
+TO DO
+
 **calm down the mind**
 Minimize the info input to what you really need. Focus fully on anything that you do. Rest.
 
@@ -97,7 +101,9 @@ Start with observing the thoughts from aside without diving into them because in
 - the mind will become more energized because its energy is not spent on thinking, your existing mental abilities will become faster, clearer etc. You will also discover new mental abilities that were dormant, but they are still a part of the existing mind. The trick here is not to dive into them.
 - the one who is observing the thoughts - you, who you really are at the core, the soul - will become increasingly proactive... This level of consciousness is to new to most people that I can explain it only by the analogy which is like descibing the taste of an apple. Therefore, just go for it. It leads to yourself and to a next level of reality, a next level of decision making and living.
 
-Questions to answer: why is this needed, is this needed, isn't the way up too monastic, does this lead to God, what next, is what i am writing true, 
+Important: 
+- do not skip any of the steps. If you go directly into meditation and succeed without having reduced your activity, desires, feelings, attitudes, thoughts to the creative, beneficial, positive, healthy, successful minimum, those parts of your life that are not fixed, may become disproportionately disbalanced.
+- This is only the spiritual discovery. It is a way up or deep. It is only half of the way. I will write about the other half later in this text.
 
 ### Torah tools for spiritual discovery
 
