@@ -66,7 +66,7 @@ But since you are here, read about the steps to become selft aware.
 
 ### General spiritual discovery
 
-The main principle is to peel off layers:
+The main principle is to wipe layers of the unnecessary off your shining soul.
 
 **declutter time**
 The goal is to spend time doing fewer and more important things.
@@ -115,6 +115,8 @@ Important:
 - This is only the spiritual discovery. It is a way up or deep. It is only half of the way. I will write about the other half later in this text.
 
 ### Torah tools for spiritual discovery
+
+TODO
 
 ## Spiritual Living
 
