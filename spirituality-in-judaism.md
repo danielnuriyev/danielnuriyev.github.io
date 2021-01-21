@@ -70,7 +70,7 @@ The main principle is to peel off layers:
 
 **declutter time**
 The goal is to spend time doing fewer and more important things.
-TO DO
+TODO
 
 **declutter space**
 The goal is to be in a place that has minimum objects, ordered, clean, aired, quiet.
@@ -84,17 +84,23 @@ Minimize the number of social interactions to people who care about you and who 
 **clean the body**
 Eat valuable nutrients in amounts that don't make you sleepy. Organic, free range, vegetarian are great pluses.
 
-**energized body**
-This is a bit opposite to decluttering because this requires proactive exercise of 2 types: exercises that cause you to breathe, like fast walking, and stretching. Stamina exercises clean the body as well, stretching puts bones in place. This is important for healthy circulation.
+**structure the body**
+This is a bit opposite to decluttering because this requires proactive exercise of 2 types: exercises that cause you to breathe, like fast walking, and stretching. Stamina exercises clean the body, stretching puts bones in place. This is important for healthy circulation.
 
 **calm down the feelings**
 Be calm no matter what. It is not the same as emotionless, on the contrary, it leads to steady happiness.
 
 **attitude**
-TO DO
+TODO
+
+**world view**
+TODO
 
 **calm down the mind**
-Minimize the info input to what you really need. Focus fully on anything that you do. Rest.
+- Minimize the info input to what you really need. 
+- Focus fully on anything that you do. 
+- Pull yourself out of thinking that is not directly related to what you are doing now.
+- Sleep
 
 **meditate**
 Start with observing the thoughts from aside without diving into them because in the depth of your current mind, thoughts is the deepest layer that you are familiar with. As the thoughts wade away, you will face 2 opposite phenomena:
@@ -108,8 +114,4 @@ Important:
 ### Torah tools for spiritual discovery
 
 ## Spiritual Living
-
-
-
-
 
