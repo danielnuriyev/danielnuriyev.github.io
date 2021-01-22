@@ -62,7 +62,7 @@ This is what people call _spiritual growth_, _spiritual development_.
 
 Because the core of every human being is the soul that seeks any opportunity to express itself through the layers of thoughts, feelings, social and physical desires. And it's not easy because the awareness is constantly attracted by anything. That's why even when a person has random thoughts that there is something beyond the usual perceptions, most people fall back asleep.
 
-But since you are here, read about the steps to become selft aware.
+But since you are here, read about the steps to become self aware.
 
 ### General spiritual discovery
 
@@ -75,7 +75,8 @@ The goal is to spend time doing fewer and more important things.
 The goal is to be in a place that has minimum objects, ordered, clean, aired, quiet.
 
 **declutter ecomonic life**
-Buy only what is absolutely necessary. Invest the rest. Donate and throw anything you don't need.
+- Buy only what is absolutely necessary. Invest the rest. Donate and throw anything you don't need.
+- Continuously improve your efficiency, social, organizational skills. Continuously work for the next level of money making. Anything else equals intentional waste of time. Keep in mind that wiping layers that conceal your soul is oppositeof becoming a passive blob.
 
 **declutter social life**
 Minimize the number of social interactions to people who care about you and who you should care about.
@@ -88,16 +89,13 @@ This is a bit opposite to decluttering because this requires proactive exercise 
 
 **calm down the feelings**
 - Be calm no matter what. It is not the same as emotionless, on the contrary, it leads to steady happiness.
-- Be forgiving, respectful, patient, grateful, kind, caring. 
-
-TODO
+- Be forgiving, respectful, patient, grateful, kind, caring. I can rationalilze each of these features in the context of wiping layers hiding the soul but if caring is based on a reason is not true caring. Just care. Why is it necessary. Because as I will explain later, spiritual discovery is only half of the way. If you do not change your feelings, you will not be able to go much deeper.
 
 **attitude**
 - Detach what you perceive from your understanding of what you perceive. Perceive without explaining to yourself.
-- Get rid of all limiting believes. When you think that something is impossible, simply replace this thought with the opposite. These are your thoughts, after all. Do not think about how 'it' can be possible because this way you will limit yourself.
-- When you have to or you choose to act, an action should be beneficial, respectful, patient, grateful, kind, caring to you and the world. This is not directly related to the spiritual discovery but as I explain later, spiritual discovery is only half of the way. If you do not become caring at this stage, you will not be able to rise higher / dive deeper.
-
-TODO
+- Get rid of all limiting believes. When you think that something is impossible, simply replace this thought with the opposite. These are your thoughts, after all. Do not think about how 'it' can be possible because this way you limit yourself in a different way.
+- Be honest and trustworthy. This requires character and bravery. Both mean freedom.
+- When you have to or you choose to act, an action should be beneficial, respectful, patient, grateful, kind, caring to you and the world. Explained above.
 
 **calm down the mind**
 - Minimize the info input to what you really need. 
