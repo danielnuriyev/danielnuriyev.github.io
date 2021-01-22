@@ -112,18 +112,23 @@ Important:
 - do not skip any of the steps. If you go directly into meditation and succeed without having reduced your activity, desires, feelings, attitudes, thoughts to the creative, beneficial, positive, healthy, successful minimum, those parts of your life that are not fixed, may become disproportionately disbalanced.
 - This is only the spiritual discovery. It is a way up or deep. It is only half of the way. I will write about the other half later in this text.
 
-### Torah tools for spiritual discovery
+### Torah commandments for spiritual discovery
 
-Torah commandments encompass all spheres of life: 
+Similar to the steps of the spiritual discovery, Torah commandments encompass all layers of life: 
 - time management: personal and global time cycles are prescribed (circumcision, bar/bat mitswa; day, week, month year, 7 years of shemita etc.)
 - place management: mezuza, appropriate places for prayer and study, the Holy Temple etc.
 - economic life: how to work honestly, how to pay employees on time, how to support the poor etc.
-- social life: how to respect parents, care for the wife, educate the children, treat people etc.
-- clothing: what clothing is considered modest
-- food: appropriate food and treatment of animals and nature.
-- behavior, feelings, attitude: the number of texts that explain how we should improve in these areas is 
+- social life: how to respect parents, care for the wife, educate the children, treat teachers, treat people, treat enemies etc.
+- clothing: what clothing is considered appropriate for spiritual life
+- food and body: netilat yadayim, position for the prayer, appropriate food and treatment of animals and nature etc.
+- feelings, attitude: blessings and prayers, what feelings should be a part of observing a commandment, what feelings must be experience at all times.
+- intellect: the commandment to study and teach the Torah
+- mind: what thoughts to keep out, focus during the commandments, intentions of commandments ect. Plus, hitbonenut - meditation.
+- the spiritual: talk only to God, no idols etc.
 
-TO CONTINUE
+Therefore, is it possible to lay out the commandments as the steps of the spiritual growth?
 
 ## Spiritual Living
 
+
+© 2009-2021 Daniel Nuriyev
