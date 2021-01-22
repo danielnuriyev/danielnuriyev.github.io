@@ -126,7 +126,7 @@ Similar to the steps of the spiritual discovery, Torah commandments encompass al
 - mind: what thoughts to keep out, focus during the commandments, intentions of commandments ect. Plus, hitbonenut - meditation.
 - the spiritual: talk only to God, no idols etc.
 
-Therefore, is it possible to lay out the commandments as the steps of the spiritual growth? It won't hurt but the goal of the commandments is opposite: it is not for the soul to gradually return to itself, find itself, become aware of itself and then blissfully abide in itself. Commandments are the next step: how a soul must use its mind, feelings, body, possessions, time in an ideal way.
+Therefore, is it possible to lay out the commandments as the steps of the spiritual growth? It won't hurt but the **goal of the commandments is opposite: it is not for the soul to gradually return to itself, find itself, become aware of itself and then blissfully abide in itself. Commandments are the next step: how a soul must use its mind, feelings, body, possessions, time in an ideal way.**
 
 TO CONTINUE
 
