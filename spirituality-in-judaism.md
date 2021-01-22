@@ -124,9 +124,11 @@ Similar to the steps of the spiritual discovery, Torah commandments encompass al
 - feelings, attitude: blessings and prayers, what feelings should be a part of observing a commandment, what feelings must be experience at all times.
 - intellect: the commandment to study and teach the Torah
 - mind: what thoughts to keep out, focus during the commandments, intentions of commandments ect. Plus, hitbonenut - meditation.
-- the spiritual: talk only to God, no idols etc.
+- transcendental: talk only to God, no idols etc.
 
 Therefore, is it possible to lay out the commandments as the steps of the spiritual growth? It won't hurt but the **goal of the commandments is opposite: it is not for the soul to gradually return to itself, find itself, become aware of itself and then blissfully abide in itself. Commandments are the next step: how a soul must use its mind, feelings, body, possessions, time in an ideal way.**
+
+Is *spiritual discovery* excluded from the Torah? Most people start the process of spiritual discovery unconsciously. It starts with people taking better care of their health, relations, finances etc. Recently increasingly more people become interested in psychology and meditation. But still the percent of people who go all the way is close to zero. Most souls never never fully find themselves and never fully function in this world. The commandments are a shortcut. A soul can start functioning as it was designed to whether it is aware of itself or not. It is similar to driving a car. A person can learn how to drive and start driving by  following the guidelines of the manufacturer and the laws. If the driver has the interest to learn more about the car, why not. But driving is different from the commandments in one aspect: every time a soul uses a tool, it flows into the tool giving it more of its consciousness, life, energy, light. Therefore, if the soul uses the mind correctly, the mind becomes more vivid and enlightened, when it uses the heart correctly, the heart shines etc.
 
 TO CONTINUE
 
