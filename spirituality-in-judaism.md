@@ -95,7 +95,7 @@ This is a bit opposite to decluttering because this requires proactive exercise 
 - Detach what you perceive from your understanding of what you perceive. Perceive without explaining to yourself.
 - Get rid of all limiting believes. When you think that something is impossible, simply replace this thought with the opposite. These are your thoughts, after all. Do not think about how 'it' can be possible because this way you limit yourself in a different way.
 - Be honest and trustworthy. This requires character and bravery. Both mean freedom.
-- When you have to or you choose to act, an action should be beneficial, respectful, patient, grateful, kind, caring to you and the world. Explained above.
+- When you have to or you choose to act, an action should be beneficial, respectful, patient, grateful, kind, caring to you and the world.
 
 **calm down the mind**
 - Minimize the info input to what you really need. 
@@ -106,7 +106,7 @@ This is a bit opposite to decluttering because this requires proactive exercise 
 **meditate**
 Start with observing the thoughts from aside without diving into them because in the depth of your current mind, thoughts is the deepest layer that you are familiar with. As the thoughts wade away, you will face 2 opposite phenomena:
 - the mind will become more energized because its energy is not spent on thinking, your existing mental abilities will become faster, clearer etc. You will also discover new mental abilities that were dormant, but they are still a part of the existing mind. The trick here is not to dive into them.
-- the one who is observing the thoughts - you, who you really are at the core, the soul - will become increasingly proactive... This level of consciousness is to new to most people that I can explain it only by the analogy which is like descibing the taste of an apple. Therefore, just go for it. It leads to yourself and to a next level of reality, a next level of decision making and living.
+- the one who is observing the thoughts - you, who you really are at the core, the soul - will become increasingly proactive... This level of consciousness is too new to most people that I can explain it only by the analogy which is like descibing the taste of an apple. Therefore, just go for it. It leads to yourself and to a next level of reality, a next level of decision making and living.
 
 Important: 
 - do not skip any of the steps. If you go directly into meditation and succeed without having reduced your activity, desires, feelings, attitudes, thoughts to the creative, beneficial, positive, healthy, successful minimum, those parts of your life that are not fixed, may become disproportionately disbalanced.
@@ -114,7 +114,16 @@ Important:
 
 ### Torah tools for spiritual discovery
 
-TODO
+Torah commandments encompass all spheres of life: 
+- time management: personal and global time cycles are prescribed (circumcision, bar/bat mitswa; day, week, month year, 7 years of shemita etc.)
+- place management: mezuza, appropriate places for prayer and study, the Holy Temple etc.
+- economic life: how to work honestly, how to pay employees on time, how to support the poor etc.
+- social life: how to respect parents, care for the wife, educate the children, treat people etc.
+- clothing: what clothing is considered modest
+- food: appropriate food and treatment of animals and nature.
+- behavior, feelings, attitude: the number of texts that explain how we should improve in these areas is 
+
+TO CONTINUE
 
 ## Spiritual Living
 
