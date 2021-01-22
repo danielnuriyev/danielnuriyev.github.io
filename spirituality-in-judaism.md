@@ -130,6 +130,8 @@ Therefore, is it possible to lay out the commandments as the steps of the spirit
 
 Is *spiritual discovery* excluded from the Torah? Most people start the process of spiritual discovery unconsciously. It starts with people taking better care of their health, relations, finances etc. Recently increasingly more people become interested in psychology and meditation. But still the percent of people who go all the way is close to zero. Most souls never never fully find themselves and never fully function in this world. The commandments are a shortcut. A soul can start functioning as it was designed to whether it is aware of itself or not. It is similar to driving a car. A person can learn how to drive and start driving by  following the guidelines of the manufacturer and the laws. If the driver has the interest to learn more about the car, why not. But driving is different from the commandments in one aspect: **every time a soul uses a tool, it flows into the tool giving it more of its consciousness, life, energy, light. Therefore, if the soul uses the mind correctly, the mind becomes more vivid and enlightened, when it uses the heart correctly, the heart shines etc.**
 
+Based on this explanation, **commandments are** not **tools for the soul to** come back to itself but to **express itself through all the available channels and tools.**
+
 TO CONTINUE
 
 © 2009-2021 Daniel Nuriyev
