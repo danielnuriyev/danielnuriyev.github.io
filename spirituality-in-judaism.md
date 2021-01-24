@@ -147,7 +147,27 @@ Is *spiritual discovery* excluded from the Torah? Most people start the process 
 
 This is what it feels when you observe the commandments as designed. Although we Jews observe the commandments simply because God told us to, like loving kids. Deeper experiences are natural but are neither the reason nor our goal. On the contrary, aiming for experiences makes a practice not sincere and dependent, not free.
 
+#### Why is it difficult to observe the commandments ?
 
+Because now we want to have the full information in advance whereas on any real spiritual path information that an experienced practicioner gives you is out of your scope and the only way to experience the same is to trust that practicioner and practice. This is no different from science but science does not require you to change. Science requires you to observe or use devices and then generalize observations into principles and rules. 
+
+Another reason is that any change causes 2X resistance. Even if you try to change for the worse.
+
+That is why accepting the Torah and the prescribed way of performing its commandments is based purely on habbit, trusting the parents, beliefs that make more sense versus some other beliefs etc.
+
+The core reason why a person observes the commandments is the soul's innate connection with the Divine but then why some people don't observe the commandments? There are multiple reasons into which I will not go.
+
+##### What to do?!
+
+- if you observe the commandments, 
+  - do them with as an interaction / ralationship / contact with God. Add proper attitude and heart. Your vide will spread.
+  - see the Divine in the eyes of other people. Your attitude will affect them.
+  - openly talk to people from your Divine point of view without excuses but without sounding condescending, preaching or cuckoo. When you live in the Divine reality, it affects people
+- if you do not observe the commandments but anything in the text has touched you:
+  - you can start the process of the *spiritual discovery* but it requires constant effort way greater than hanging on a smartphone.
+  - you can skip to the end and start observing the commandments. It also requires effort because you have to learn the technical aspects without knowing their spiritual mechanism and the precise effects. But if you do it as a relationship with the Inifinite you will gradually see the world change around you. Some changes are temporarily painful because you are switching to a different track.
+  - you can start with changing your world view by realizing that you are surrounded by the Inifinite Divine but here lies the danger of forever staying a blissful lazy philosophising klumnik (good-for-nothing).
+  
 
 TO CONTINUE
 
