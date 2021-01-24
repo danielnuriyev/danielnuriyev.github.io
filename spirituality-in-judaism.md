@@ -108,6 +108,13 @@ Start with observing the thoughts from aside without diving into them because in
 - the mind will become more energized because its energy is not spent on thinking, your existing mental abilities will become faster, clearer etc. You will also discover new mental abilities that were dormant, but they are still a part of the existing mind. The trick here is not to dive into them.
 - the one who is observing the thoughts - you, who you really are at the core, the soul - will become increasingly proactive... This level of consciousness is too new to most people that I can explain it only by the analogy which is like descibing the taste of an apple. Therefore, just go for it. It leads to yourself and to a next level of reality, a next level of decision making and living.
 
+Also:
+- if by now you have been an atheist or an agnostic, and you keep going deeper and deeper into meditation, the new reality that your will start facing and your new self, will not match your previous views. At the same time, the broader reality that you will face will not contradict logic, reason, science, it will just provide more information to your logic and reason. Science is about describing the reality, after all.
+- if by now you have had some metaphysical beliefs, the new reality may not necessarily match them. Or you will see the deeper roots of your beliefs.
+- you will see all people as souls at different levels of awareness. The human behavior will become obvious to you. You will become more compassionate, patient, less judgemental, more helpful.
+
+The biggest change in your view of reality, though, will come from the realization of God. I have alluded to this when I mentioned an atheist, an agnostic and a believer. They are essentially no different. They were just people with a yes/no thought on an abstract subject. Whereas direct experience of the Divine places YOU in the center of Infinity surrounded by the Inifinite Wisdom and Care and causes you to experience Inifinite Humility, Gratitude, Love, Self Sacrifice. 
+
 Important: 
 - do not skip any of the steps. If you go directly into meditation and succeed without having reduced your activity, desires, feelings, attitudes, thoughts to the creative, beneficial, positive, healthy, successful minimum, those parts of your life that are not fixed, may become disproportionately disbalanced.
 - This is only the spiritual discovery. It is a way up or deep. It is only half of the way. I will write about the other half later in this text.
