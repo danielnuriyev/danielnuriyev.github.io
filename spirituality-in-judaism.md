@@ -2,8 +2,6 @@
 
 Jewish spiritual method as I see it through practice and study.
 
-This is a work in progress.
-
 ## What is _spiritual_
 
 First I would like to define the term _spiritual_ as it will be used in this text.
@@ -179,6 +177,12 @@ If you are a non-Jew and after reading this text have become interested in obser
 A deeper question is why God gave the Torah only to the family of Israel etc. 
 I have some explanations but I am a practical person and this is the current state: we are Jews, we have the Torah, if you accept it, you will be esteemed higher than a born Jew, if not, we can still be at peace.
 
-TO CONTINUE
+## Sources
+
+Everything that I have written is based on my personal practice and experience which is based on other people's direct advice or writings.
+
+Think, try, read to expand your world view. One book describes Judaism and its world view on a general level: [The Way of God by Moshe Chaim Luzzato translated by Rav Aryeh Kaplan](https://www.amazon.com/Way-God-Derech-Hashem/dp/1598264672/).
+
+TODO: add more books
 
 © 2009-2021 Daniel Nuriyev
