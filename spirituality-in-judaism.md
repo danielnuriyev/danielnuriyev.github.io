@@ -1,6 +1,6 @@
-# Jewish Spirituality
+# Jewish Spiritual Method
 
-Jewish spirituality as I see it through practice and study.
+Jewish spiritual method as I see it through practice and study.
 
 This is a work in progress.
 
@@ -168,6 +168,16 @@ The core reason why a person observes the commandments is the soul's innate conn
   - you can skip to the end and start observing the commandments. It also requires effort because you have to learn the technical aspects without knowing their spiritual mechanism and the precise effects. But if you do it as a relationship with the Inifinite you will gradually see the world change around you. Some changes are temporarily painful because you are switching to a different track.
   - you can start with changing your world view by realizing that you are surrounded by the Inifinite Divine but here lies the danger of forever staying a blissful lazy philosophising klumnik (good-for-nothing).
   
+#### Torah commandments and non-Jews
+
+This text is for my fellow Jews. But since it is public and in English, and everyone can read it...
+
+If you are a non-Jew and after reading this text have become interested in observing and studying the Jewish commandments and the Torah then
+- you do not have to become Jewish because according to the Jewish tradition God gave Noah and through him to all the mankind the 7 Laws of Noah according to which you have to accept the one God as prescibed by God (no Trinity etc.), get rid of any intermediaries (sub-gods, angels, forces, spirits, souls etc.) and their depictions, be honest, just, compassionate etc. More [here](https://en.wikipedia.org/wiki/Seven_Laws_of_Noah). And in addition to these basic laws you can practice the *spiritual discovery*, live a *spiritual life* (the phase after the discovery) and also study the practice the Jewish spiritual worldiew.
+- you are always welcome to convert.
+
+A deeper question is why God gave the Torah only to the family of Israel etc. 
+I have some explanations but I am a practical person and this is the current state: we are Jews, we have the Torah, if you accept it, you will be esteemed higher than a born Jew, if not, we can still be at peace.
 
 TO CONTINUE
 
