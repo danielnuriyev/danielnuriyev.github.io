@@ -145,7 +145,7 @@ Is *spiritual discovery* excluded from the Torah? Most people start the process 
   - you live inside the Divine who is Initinite and everywhere. You are constantly surrounded by Inifinite Wizdom and Care. You are in constant interaction with the Inifinite.
   - You perceive others as souls at various levels of awareness. And naturally you start treating others with Compassion and with Care, like God Himself.
 
-This is what it feels when you observe the commandments as designed. Although we Jews observe the commandments simply because God told us to, like loving kids. We don't need any other reason. This is the punchline of being Jewish! Deeper experiences are natural but are neither the reason nor our goal. On the contrary, aiming for experiences makes a practice not sincere and dependent, not free.
+This is what it feels when you observe the commandments as designed. Although we Jews observe the commandments simply because God told us to, like loving kids. Deeper experiences are natural but are neither the reason nor our goal. On the contrary, aiming for experiences makes a practice not sincere and dependent, not free.
 
 
 
