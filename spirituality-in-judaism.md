@@ -141,6 +141,12 @@ Is *spiritual discovery* excluded from the Torah? Most people start the process 
 - Everything that we perceive is a tool that a soul can use. Tools are the mind, the feelings, the body, the world around. Commandments mandate the perfect way a soul can use a tool. 'Mandate' because a soul must be proactive in the world.
 - When a soul uses a tool, the soul flows into the tool. The tool itself becomes a channel for the soul. The tool comes closer to its ideal structure and function by becoming more pure and energized.
 - The location of the awareness is also a tool. In some cases you have to focus on the physical commandment. In other cases you are free to keep the awareness in the soul or higher/deeper (God!)
+- In addition, when you follow Torah's world view, 
+  - you live inside the Divine who is Initinite and everywhere. You are constantly surrounded by Inifinite Wizdom and Care. You are in constant interaction with the Inifinite.
+  - You perceive others as souls at various levels of awareness. And naturally you start treating others with Compassion and with Care, like God Himself.
+
+This is what it feels when you observe the commandments as designed. Although we Jews observe the commandments simply because God told us to, like loving kids. We don't need any other reason. This is the punchline of being Jewish! Deeper experiences are natural but are neither the reason nor our goal. On the contrary, aiming for experiences makes a practice not sincere and dependent, not free.
+
 
 
 TO CONTINUE
