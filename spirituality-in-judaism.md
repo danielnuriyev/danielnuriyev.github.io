@@ -181,7 +181,7 @@ I have some explanations but I am a practical person and this is the current sta
 
 Everything that I have written is based on my personal practice and experience which is based on other people's direct advice or writings.
 
-Think, try, read to expand your world view. One book describes Judaism and its world view on a general level: [The Way of God by Moshe Chaim Luzzato translated by Rav Aryeh Kaplan](https://www.amazon.com/Way-God-Derech-Hashem/dp/1598264672/).
+Think, try, read to expand your world view. One book describes Judaism and its world view on a general level: [The Way of God and the Essay of Fundamentals by Moshe Chaim Luzzato translated by Rav Aryeh Kaplan](https://www.amazon.com/Way-God-Derech-Hashem/dp/1598264672/).
 
 TODO: add more books
 
