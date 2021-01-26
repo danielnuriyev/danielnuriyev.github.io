@@ -117,6 +117,11 @@ Important:
 - do not skip any of the steps. If you go directly into meditation and succeed without having reduced your activity, desires, feelings, attitudes, thoughts to the creative, beneficial, positive, healthy, successful minimum, those parts of your life that are not fixed, may become disproportionately disbalanced.
 - This is only the spiritual discovery. It is a way up or deep. It is only half of the way. I will write about the other half later in this text.
 
+**spread**
+
+The next step is to share your new world with others. This step is natural. It happens even if you don't do anything. Your vibe simply changes the reality around.
+But this also brings me to the descussions of the commandments in Torah.
+
 ### Torah commandments for spiritual discovery
 
 Similar to the steps of the spiritual discovery, Torah commandments encompass all layers of life: 
@@ -149,7 +154,7 @@ This is what it feels when you observe the commandments as designed. Although we
 
 Because now we want to have the full information in advance whereas on any real spiritual path information that an experienced practicioner gives you is out of your scope and the only way to experience the same is to trust that practicioner and practice. This is no different from science but science does not require you to change. Science requires you to observe or use devices and then generalize observations into principles and rules. 
 
-Another reason is that any change causes 2X resistance. Even if you try to change for the worse.
+Another reason is that any change causes 2X resistance. Even if you try to change for the worse. Especially given the fact that observing the commandments is not only easy but fantastic. Take a regular day. You start it by preparing to speak to the Infinite, the Ultimate, the Best Reality. Then you spend your day being dressed modestly, being nice to people, eating kosher food, which is not a big effort, and you thank God for the food. Objectively, if this is difficult, it is purely psychologically.
 
 That is why accepting the Torah and the prescribed way of performing its commandments is based purely on habbit, trusting the parents, beliefs that make more sense versus some other beliefs etc.
 
