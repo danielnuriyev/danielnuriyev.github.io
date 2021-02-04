@@ -19,11 +19,9 @@ Judaism has some of it:
 - rituals: physical observance of commandments and traditions
 - attitudes: how a person should view the world
 - behaviors: how a person should behave
-- feelings: how a person should feel towards God, parents, friends, the poor etc. and how a person should feel others.
-- words: how to speak with God and people and how a person should listen.
-- Judaism has a long history of litarature ranging from down to earth topics such as geography 
-up to the most abstract ideas about the origin of the world and the human mind.
-- Judaism has a long history of people who performed miracles.
+- feelings: how a person should feel towards God, parents, friends, the poor etc. and how a person should feel others
+- Judaism has a long history of religious, spiritual and mystical
+- Judaism has a long history of people who performed miracles
 
 But in this text the word _spiritual_ will refer to what is beyond what we currently perceive.
 
