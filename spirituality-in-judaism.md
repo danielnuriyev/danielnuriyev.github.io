@@ -104,6 +104,7 @@ Exercises that cause you to breathe, like fast walking, and stretching exercises
 - Sleep
 
 **meditate**
+
 Start with observing the thoughts from aside without diving into them because in the depth of your current mind, thoughts is the deepest layer that you are familiar with. As the thoughts wade away, you will face 2 opposite phenomena:
 - the mind will become more energized because its energy is not spent on thinking, your existing mental abilities will become faster, clearer etc. You will also discover new mental abilities that were dormant, but they are still a part of the existing mind. The trick here is not to dive into them.
 - the one who is observing the thoughts - you, who you really are at the core, the soul - will become increasingly proactive... This level of consciousness is too new to most people that I can explain it only by the analogy which is like descibing the taste of an apple. Therefore, just go for it. It leads to yourself and to a next level of reality, a next level of decision making and living.
