@@ -68,11 +68,12 @@ The main principle is to wipe layers of the unnecessary off your shining soul.
 The goal is to spend time doing fewer and more important things.
 
 **declutter space**
-The goal is to be in a place that has minimum objects, ordered, clean, aired, quiet.
+The goal is to be in a place that has minimum objects, ordered, clean, aired, quiet to reduce distractions.
 
 **declutter ecomonic life**
 - Buy only what is absolutely necessary. Invest the rest. Donate and throw anything you don't need.
-- Continuously improve your efficiency, social, organizational skills. Continuously work for the next level of money making. Anything else equals intentional waste of time. Keep in mind that wiping layers that conceal your soul is oppositeof becoming a passive blob.
+- Continuously improve your efficiency, social, organizational skills. Continuously work for the next level of money making. Anything else equals intentional waste of time. Keep in mind that wiping layers that conceal your soul is opposite of becoming a passive blob.
+- Donate. Especially to people who need money for a good cause but cannot earn it at the moment. *Spiritual discovery* is only half of the Way. The other half is sharing. You will not make it all the way up, without changing yourself into a sharing and caring person on each level.
 
 **declutter social life**
 Minimize the number of social interactions to people who care about you and who you should care about.
@@ -81,17 +82,20 @@ Minimize the number of social interactions to people who care about you and who 
 Eat valuable nutrients in amounts that don't make you sleepy. Organic, free range, vegetarian are great pluses.
 
 **structure the body**
-This is a bit opposite to decluttering because this requires proactive exercise of 2 types: exercises that cause you to breathe, like fast walking, and stretching. Stamina exercises clean the body, stretching puts bones in place. This is important for healthy circulation.
+Exercises that cause you to breathe, like fast walking, and stretching exercises make the body clean and well structured which gives us energy, good emotions and clarity of mind.
 
 **calm down the feelings**
-- Be calm no matter what. It is not the same as emotionless, on the contrary, it leads to steady happiness.
-- Be forgiving, respectful, patient, grateful, kind, caring. I can rationalilze each of these features in the context of wiping layers hiding the soul but if caring is based on a reason is not true caring. Just care. Why is it necessary. Because as I will explain later, spiritual discovery is only half of the way. If you do not change your feelings, you will not be able to go much deeper.
+- Be calm no matter what. It is not the same as emotionless, on the contrary, it leads to steady happiness independent of circumstances.
+- Be forgiving, respectful, patient, grateful, kind, caring. I can rationalilze each of these features in the context of wiping layers hiding the soul but caring is based on a reason is not true caring. Just care. Caring must be proactive.
 
-**attitude**
-- Detach what you perceive from your understanding of what you perceive. Perceive without explaining to yourself.
-- Get rid of all limiting believes. When you think that something is impossible, simply replace this thought with the opposite. These are your thoughts, after all. Do not think about how 'it' can be possible because this way you limit yourself in a different way.
+**behavior**
 - Be honest and trustworthy. This requires character and bravery. Both mean freedom.
 - When you have to or you choose to act, an action should be beneficial, respectful, patient, grateful, kind, caring to you and the world.
+
+**mindset**
+- Detach what you perceive from your understanding of what you perceive. Perceive without explaining to yourself.
+- Get rid of all limiting believes. When you think that something is impossible, simply replace this thought with the opposite. These are your thoughts, after all. Do not think about how 'it' can be possible because this way you limit yourself in a different way.
+- Know that your current thoughts create your future.
 
 **calm down the mind**
 - Minimize the info input to what you really need. 
