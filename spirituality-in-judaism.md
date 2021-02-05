@@ -65,9 +65,11 @@ But since you are here, read about the steps to become self aware.
 The main principle is to wipe layers of the unnecessary off your shining soul.
 
 **declutter time**
+
 The goal is to spend time doing fewer and more important things.
 
 **declutter space**
+
 The goal is to be in a place that has minimum objects, ordered, clean, aired, quiet to reduce distractions.
 
 **declutter ecomonic life**
@@ -76,12 +78,15 @@ The goal is to be in a place that has minimum objects, ordered, clean, aired, qu
 - Donate. Especially to people who need money for a good cause but cannot earn it at the moment. *Spiritual discovery* is only half of the Way. The other half is sharing. You will not make it all the way up, without changing yourself into a sharing and caring person on each level.
 
 **declutter social life**
+
 Minimize the number of social interactions to people who care about you and who you should care about.
 
 **clean the body**
+
 Eat valuable nutrients in amounts that don't make you sleepy. Organic, free range, vegetarian are great pluses.
 
 **structure the body**
+
 Exercises that cause you to breathe, like fast walking, and stretching exercises make the body clean and well structured which gives us energy, good emotions and clarity of mind.
 
 **calm down the feelings**
@@ -116,37 +121,35 @@ Also:
 
 The biggest change in your view of reality, though, will come from the realization of God. I have alluded to this when I mentioned an atheist, an agnostic and a believer. They are essentially no different. They were just people with a yes/no thought on an abstract subject. Whereas direct experience of the Divine places YOU in the center of Infinity surrounded by the Inifinite Wisdom and Care and causes you to experience Inifinite Humility, Gratitude, Love, Self Sacrifice. 
 
-Important: 
-- do not skip any of the steps. If you go directly into meditation and succeed without having reduced your activity, desires, feelings, attitudes, thoughts to the creative, beneficial, positive, healthy, successful minimum, those parts of your life that are not fixed, may become disproportionately disbalanced.
-- This is only the spiritual discovery. It is a way up or deep. It is only half of the way. I will write about the other half later in this text.
+Important: do not skip any of the steps. If you go directly into meditation and succeed without having reduced your activity, desires, feelings, attitudes, thoughts to the creative, beneficial, positive, healthy, successful minimum, those parts of your life that are not fixed, may become disproportionately disbalanced.
 
 **spread**
 
 The next step is to share your new world with others. This step is natural. It happens even if you don't do anything. Your vibe simply changes the reality around.
-But this also brings me to the descussions of the commandments in Torah.
+But this also brings me to the discussion of the commandments in Torah.
 
 ### Torah commandments for spiritual discovery
 
-Similar to the steps of the spiritual discovery, Torah commandments encompass all layers of life: 
-- time management: personal and global time cycles are prescribed (circumcision, bar/bat mitswa; day, week, month year, 7 years of shemita etc.)
-- place management: mezuza, appropriate places for prayer and study, the Holy Temple etc.
+Similar to the steps of the spiritual discovery, Torah commandments affect all layers of life: 
+- time: personal and global time cycles are prescribed (circumcision, bar/bat mitswa; day, week, month year, 7 years of shemita etc.)
+- place: mezuza, appropriate places for prayer and study, the Holy Temple etc.
 - economic life: how to work honestly, how to pay employees on time, how to support the poor etc.
 - social life: how to respect parents, care for the wife, educate the children, treat teachers, treat people, treat enemies etc.
 - clothing: what clothing is considered appropriate for spiritual life
 - food and body: netilat yadayim, position for the prayer, appropriate food and treatment of animals and nature etc.
-- feelings, attitude: blessings and prayers, what feelings should be a part of observing a commandment, what feelings must be experience at all times.
+- feelings, attitude: blessings and prayers, what feelings should be a part of observing a commandment, what feelings must be experienced at all times.
 - intellect: the commandment to study and teach the Torah
 - mind: what thoughts to keep out, focus during the commandments, intentions of commandments ect. Plus, hitbonenut - meditation.
 - transcendental: talk only to God, no idols etc.
 
 Therefore, is it possible to lay out the commandments as the steps of the spiritual growth? It won't hurt but the **goal of the commandments is opposite: it is not for the soul to gradually return to itself, find itself, become aware of itself and then blissfully abide in itself. Commandments are the next step: how a soul must use its mind, feelings, body, possessions, time in an ideal way.**
 
-Is *spiritual discovery* excluded from the Torah? Most people start the process of spiritual discovery unconsciously. It starts with people taking better care of their health, relations, finances etc. Recently increasingly more people become interested in psychology and meditation. But still the percent of people who go all the way is close to zero. Most souls never never fully find themselves and never fully function in this world. The commandments are a shortcut. A soul can start functioning as it was designed to whether it is aware of itself or not. It is similar to driving a car. A person can learn how to drive and start driving by  following the guidelines of the manufacturer and the laws. If the driver has the interest to learn more about the car, why not. But driving is different from the commandments in one aspect: **every time a soul uses a tool, it flows into the tool giving it more of its consciousness, life, energy, light. Therefore, if the soul uses the mind correctly, the mind becomes more vivid and enlightened, when it uses the heart correctly, the heart shines etc.**
+Is *spiritual discovery* excluded from the Torah? Most people start the process of spiritual discovery unconsciously. It starts with people taking better care of their health, relations, finances etc. Recently increasingly more people are interested in psychology and meditation. But still the percent of people who go all the way is close to zero. Most souls never fully find themselves and never fully function in this world. The commandments are a shortcut. A soul can start functioning as it was designed to whether it is aware of itself or not. It is similar to driving a car. A person can learn how to drive and start driving by following the guidelines of the manufacturer and the laws. If the driver has the interest to learn more about the car, why not. But driving is different from the commandments in one aspect: **every time a soul uses a tool, it flows into the tool giving it more of its consciousness, life, energy, light. Therefore, if the soul uses the mind correctly, the mind becomes more vivid and enlightened, when it uses the heart correctly, the heart shines etc.**
 
 **To sum up**
 - Everything that we perceive is a tool that a soul can use. Tools are the mind, the feelings, the body, the world around. Commandments mandate the perfect way a soul can use a tool. 'Mandate' because a soul must be proactive in the world.
 - When a soul uses a tool, the soul flows into the tool. The tool itself becomes a channel for the soul. The tool comes closer to its ideal structure and function by becoming more pure and energized.
-- The location of the awareness is also a tool. In some cases you have to focus on the physical commandment. In other cases you are free to keep the awareness in the soul or higher/deeper (God!)
+- The location of the awareness is also a tool. In some cases you have to focus on a physical commandment. In other cases you are free to keep the awareness in the soul or higher/deeper (God!)
 - In addition, when you follow Torah's world view, 
   - you live inside the Divine who is Initinite and everywhere. You are constantly surrounded by Inifinite Wizdom and Care. You are in constant interaction with the Inifinite.
   - You perceive others as souls at various levels of awareness. And naturally you start treating others with Compassion and with Care, like God Himself.
@@ -157,7 +160,7 @@ This is what it feels when you observe the commandments as designed. Although we
 
 Because now we want to have the full information in advance whereas on any real spiritual path information that an experienced practicioner gives you is out of your scope and the only way to experience the same is to trust that practicioner and practice. This is no different from science but science does not require you to change. Science requires you to observe or use devices and then generalize observations into principles and rules. 
 
-Another reason is that any change causes 2X resistance. Even if you try to change for the worse. Especially given the fact that observing the commandments is not only easy but fantastic. Take a regular day. You start it by preparing to speak to the Infinite, the Ultimate, the Best Reality. Then you spend your day being dressed modestly, being nice to people, eating kosher food, which is not a big effort, and you thank God for the food. Objectively, if this is difficult, it is purely psychologically.
+Another reason is that any change causes 2X resistance. Even if you try to change for the worse. Especially given the fact that observing the commandments is not only easy but fantastic. Take a regular day. You start it by preparing to speak to the Infinite, the Ultimate, the Best Reality. Then you spend your day being dressed modestly, being nice to people, eating kosher food, which is not a big effort, and you thank God for the food. Objectively, if this is difficult, it is purely psychological.
 
 That is why accepting the Torah and the prescribed way of performing its commandments is based purely on habbit, trusting the parents, beliefs that make more sense versus some other beliefs etc.
 
@@ -181,9 +184,6 @@ This text is for my fellow Jews. But since it is public and in English, and ever
 If you are a non-Jew and after reading this text have become interested in observing and studying the Jewish commandments and the Torah then
 - you do not have to become Jewish because according to the Jewish tradition God gave Noah and through him to all the mankind the 7 Laws of Noah according to which you have to accept the one God as prescibed by God (no Trinity etc.), get rid of any intermediaries (sub-gods, angels, forces, spirits, souls etc.) and their depictions, be honest, just, compassionate etc. More [here](https://en.wikipedia.org/wiki/Seven_Laws_of_Noah). And in addition to these basic laws you can practice the *spiritual discovery*, live a *spiritual life* (the phase after the discovery) and also study the practice the Jewish spiritual worldiew.
 - you are always welcome to convert.
-
-A deeper question is why God gave the Torah only to the family of Israel etc. 
-I have some explanations but I am a practical person and this is the current state: we are Jews, we have the Torah, if you accept it, you will be esteemed higher than a born Jew, if not, we can still be at peace.
 
 ## Sources
 
