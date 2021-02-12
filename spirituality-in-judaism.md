@@ -1,6 +1,6 @@
 # Spirituality in Judaism
 
-..as I see it through practice and study.
+^ as I see it through practice and study.
 
 ## What is _spiritual_
 
@@ -190,6 +190,6 @@ Everything that I have written is based on my personal practice and experience w
 
 Think, try, read to expand your world view. One book describes Judaism and its world view on a general level: [The Way of God and the Essay of Fundamentals by Moshe Chaim Luzzato translated by Rav Aryeh Kaplan](https://www.amazon.com/Way-God-Derech-Hashem/dp/1598264672/).
 
-Another useful book by Moshe Chaim Luzzato is [Path of the Just](https://www.amazon.com/Path-Torah-Classics-Library-Pocket/dp/) in which he describes the steps that one should take to rise from our current level to the level of Holiness.
+Another useful book by Moshe Chaim Luzzato is [Path of the Just](https://www.amazon.com/Path-Torah-Classics-Library-Pocket/dp/1598266276/) in which he describes the steps that one should take to rise from our current level to the level of Holiness.
 
 © 2009-2021 Daniel Nuriyev
