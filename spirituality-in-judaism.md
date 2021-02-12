@@ -1,6 +1,6 @@
-# Jewish Spiritual Method
+# Spirituality in Judaism
 
-Jewish spiritual method as I see it through practice and study.
+..as I see it through practice and study.
 
 ## What is _spiritual_
 
