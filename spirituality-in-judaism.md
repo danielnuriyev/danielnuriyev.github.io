@@ -188,8 +188,12 @@ If you are a non-Jew and after reading this text have become interested in obser
 
 Everything that I have written is based on my personal practice and experience which is based on other people's direct advice or writings.
 
-Think, try, read to expand your world view. One book describes Judaism and its world view on a general level: [The Way of God and the Essay of Fundamentals by Moshe Chaim Luzzato translated by Rav Aryeh Kaplan](https://www.amazon.com/Way-God-Derech-Hashem/dp/1598264672/).
+Think, try, read to expand your world view.
 
-Another useful book by Moshe Chaim Luzzato is [Path of the Just](https://www.amazon.com/Path-Torah-Classics-Library-Pocket/dp/1598266276/) in which he describes the steps that one should take to rise from our current level to the level of Holiness.
+Here I will list a few books that i consider universally beneficial for the spiritual practice:
+
+- [The Way of God and the Essay of Fundamentals by Moshe Chaim Luzzato translated by Rav Aryeh Kaplan](https://www.amazon.com/Way-God-Derech-Hashem/dp/1598264672/) describes the core Jewish spiritual beliefs.
+- [Path of the Just](https://www.amazon.com/Path-Torah-Classics-Library-Pocket/dp/1598266276/) also by Moshe Chaim Luzzato describes the steps that one should take to rise from our current level to the level of Holiness.
+- [Palm Tree of Devorah](https://www.amazon.com/Amazing-Devorah-Special-Smaller-Divided/dp/B004I65AT8/) by Moshe Cordovero describes how God behaves with us and why and how we should immitate Him.
 
 © 2009-2021 Daniel Nuriyev
